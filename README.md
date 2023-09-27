@@ -6,7 +6,7 @@
 
 🌏 [GitHub](https://github.com/jcyicai)
 
-🚀 [掘金](https://juejin.cn/user/131597123991159)
+🚀 [掘金](https://juejin.cn/user/131597123991159/posts)
 
 📕 [小红书](https://www.xiaohongshu.com/user/profile/5b5183654eacab7621104468?xhsshare=CopyLink&appuid=5b5183654eacab7621104468&apptime=1693119314)
 
