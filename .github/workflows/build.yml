@@ -48,6 +48,6 @@ jobs:
           git config --global user.name "Jason Chen"
           git remote set-url origin https://${{ github.actor }}:${{ secrets.ACCESS_TOKEN }}@github.com/${{ github.repository }}
           git add -A
-          git commit --allow-empty -m "update daily"
+          git commit --allow-empty -m "Update README.md"
           git pull --rebase
           git push

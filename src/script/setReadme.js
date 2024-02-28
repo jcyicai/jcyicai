@@ -9,15 +9,15 @@ const setReadme = async () => {
 
     const article = 
     `
-### 👋Hi, I'm Jason Chen. 
+### 👋 Hi, I'm Jason Chen. 
 
 长期坚持的事：早起、读书、学习、跑步、做饭
 
-### 🕡Daily Sentence
+### 🕡 Daily Sentence
 
 ${data.note}
 
-### 📝Blog
+### 📝 Blog
 
 🚀 [掘金](https://juejin.cn/user/131597123991159/posts)
 
