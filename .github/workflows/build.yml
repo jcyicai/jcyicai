@@ -46,8 +46,8 @@ jobs:
           git diff
           git config --global user.email "chenyicai622@qq.com"
           git config --global user.name "Jason Chen"
-          git remote set-url origin https://${{ github.actor }}:${{ secrets.jcyicai }}@github.com/${{ github.repository }}
+          git remote set-url origin https://${{ github.actor }}:${{ secrets.ACCESS_TOKEN }}@github.com/${{ github.repository }}
           git add -A
-          git commit --allow-empty -m "update daily sentence"
+          git commit --allow-empty -m "update daily"
           git pull --rebase
           git push
