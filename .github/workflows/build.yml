@@ -1,0 +1,53 @@
+name: 生成 README
+
+on:
+  push:
+    branches: [main]
+  pull_request:
+    branches: [main]
+  schedule:
+    # UTC + 8 = 中国时区
+    # 22:30 + 8 = 6:30（明天） 每 6 点半触发一次
+    - cron: '30 22 * * *'
+
+jobs:
+  build:
+    # 运行虚拟机环境
+    runs-on: ubuntu-latest
+
+    permissions:
+      contents: write
+
+    steps:
+      - name: 设置时区
+        uses: szenius/set-timezone@v1.0
+        with:
+          timezoneLinux: 'Asia/Shanghai'
+          timezoneMacos: 'Asia/Shanghai'
+          timezoneWindows: 'Asia/Shanghai'
+      - name: Checkout
+        uses: actions/checkout@v3
+      - name: 环境配置
+        uses: actions/setup-node@v3
+        with:
+          node-version: '16.x'
+          cache: 'npm'
+      - name: 缓存
+        uses: actions/cache@v3
+        with:
+          path: node_modules
+          key: ${{ runner.os }}-js-${{ hashFiles('package-lock.json') }}
+      - name: 安装依赖
+        run: npm install
+      - name: 生成 README.md
+        run: npm run build --if-present
+      - name: Commit and push if changed
+        run: |
+          git diff
+          git config --global user.email "chenyicai622@qq.com"
+          git config --global user.name "Jason Chen"
+          git remote set-url origin https://${{ github.actor }}:${{ secrets.jcyicai }}@github.com/${{ github.repository }}
+          git add -A
+          git commit --allow-empty -m "update daily sentence"
+          git pull --rebase
+          git push
