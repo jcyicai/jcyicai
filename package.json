@@ -1,0 +1,24 @@
+{
+  "name": "jcyicai",
+  "version": "1.0.0",
+  "description": "Jason Chen's Github",
+  "main": "index.js",
+  "scripts": {
+    "build": "node src/script/setReadme.js",
+    "test": "echo \"Error: no test specified\" && exit 1"
+  },
+  "repository": {
+    "type": "git",
+    "url": "git+https://github.com/jcyicai/jcyicai.git"
+  },
+  "keywords": [],
+  "author": "Jason Chen",
+  "license": "ISC",
+  "bugs": {
+    "url": "https://github.com/jcyicai/jcyicai/issues"
+  },
+  "homepage": "https://github.com/jcyicai/jcyicai#readme",
+  "dependencies": {
+    "node-fetch": "^3.3.2"
+  }
+}

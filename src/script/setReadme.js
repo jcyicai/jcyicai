@@ -1,8 +1,19 @@
+const file = require('../utils/file.js')
+const rec = require('../utils/rec.js')
+
+const CIBA_API = 'https://open.iciba.com/dsapi/'
+
+const setReadme = async () => {
+  try {
+    const data = await rec.getData(CIBA_API)
+
+    const article = 
+    `
 ### Hi👋, I'm Jason Chen. 
 
 长期坚持的事：早起、读书、学习、跑步、做饭
 
-追风赶月莫停留，平芜尽处是春山
+${data.note}
 
 🚀 [掘金](https://juejin.cn/user/131597123991159/posts)
 
@@ -19,4 +30,11 @@
 <img src="https://github-readme-stats.vercel.app/api?username=jcyicai" style="width: 50%;" />
 
 <img src="https://4sdvg7tqbv.us.aircode.run/juejin?uid=131597123991159" style="width: 50%;" />
+`
+    await file.setJsonFileData('README.md', article, true)
+  } catch (error) {
+    console.warn(error)
+  }
+}
 
+setReadme()
