@@ -5,7 +5,7 @@
 
 ### 🕡 Daily Sentence
 
-忍耐是最好的药物。
+清明时节雨纷纷
 
 ### 📝 Blog
 
