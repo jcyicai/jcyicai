@@ -5,7 +5,7 @@
 
 ### 🕡 Daily Sentence
 
-语言是行动的反映。
+人人平等。
 
 ### 📝 Blog
 
