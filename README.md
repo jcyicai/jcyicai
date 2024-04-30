@@ -5,7 +5,7 @@
 
 ### 🕡 Daily Sentence
 
-人人平等。
+劳动是最可靠的财富。
 
 ### 📝 Blog
 
