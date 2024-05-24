@@ -5,7 +5,7 @@
 
 ### 🕡 Daily Sentence
 
-三思而后行。
+罗马不是一天造成的。
 
 ### 📝 Blog
 
