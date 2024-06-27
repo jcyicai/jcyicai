@@ -36,7 +36,6 @@ ${data.note}
 ![CSS3](https://img.shields.io/badge/CSS3-32CD32?logo=CSS3&logoColor=fff)
 ![JavaScript](https://img.shields.io/badge/JavaScript-F7DF1E?logo=JavaScript&logoColor=333)
 ![TypeScript](https://img.shields.io/badge/TypeScript-3178C6?logo=TypeScript&logoColor=fff)
-![Java](https://img.shields.io/badge/-Java-F78C40?logo=OpenJDK&logoColor=000)
 
 **Frameworks:**
 
