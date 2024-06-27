@@ -1,7 +1,7 @@
 
 ### 👋 Hello there! I'm Jason Chen, a front-end development engineer. Feel free to reach out for a chat and let's learn and grow together.
 
-[![visitors](https://visitor-badge.laobi.icu/badge?page_id=super456.super456)](https://github.com/super456)
+[![visitors](https://visitor-badge.laobi.icu/badge?page_id=jcyicai.jcyicai)](https://github.com/jcyicai)
 
 Long-term commitments: waking up early, reading, studying, running, cooking.
 
