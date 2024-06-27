@@ -73,3 +73,4 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 </tr>
 </tbody>
 </table>
+
