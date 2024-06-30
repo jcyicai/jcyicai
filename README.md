@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-既来之，则安之。
+当你挽救了一条生命，就等于挽救了全世界。
 
 ### 📝 Blog
 
