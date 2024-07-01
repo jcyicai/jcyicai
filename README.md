@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-当你挽救了一条生命，就等于挽救了全世界。
+成年人的生活里没有容易二字。
 
 ### 📝 Blog
 
