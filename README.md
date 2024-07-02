@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-成年人的生活里没有容易二字。
+你比你相信的更勇敢。 —《小熊维尼》
 
 ### 📝 Blog
 
