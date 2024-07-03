@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你比你相信的更勇敢。 —《小熊维尼》
+因为你的善行，生命才得以传承下去。
 
 ### 📝 Blog
 
