@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-因为你的善行，生命才得以传承下去。
+生命如花，爱情是蜜。
 
 ### 📝 Blog
 
