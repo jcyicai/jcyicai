@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-生命如花，爱情是蜜。
+每个恋爱中的人都是诗人。
 
 ### 📝 Blog
 
