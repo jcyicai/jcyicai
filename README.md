@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-男孩最好的朋友是他的母亲。
+学会自嘲也是爱自己的一种表现。
 
 ### 📝 Blog
 
