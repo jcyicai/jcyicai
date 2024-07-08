@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-学会自嘲也是爱自己的一种表现。
+唯一的限制就是你的灵魂。 —《料理鼠王》
 
 ### 📝 Blog
 
