@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-让你跌到谷底的事情，往往也是你重新站起的原因。 —《小飞象》
+谁说梦想只能是梦想呢？ —小美人鱼
 
 ### 📝 Blog
 
