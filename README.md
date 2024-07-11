@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-谁说梦想只能是梦想呢？ —小美人鱼
+没有努力，天份不代表什么。
 
 ### 📝 Blog
 
