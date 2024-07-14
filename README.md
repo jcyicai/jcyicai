@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你不能操纵事实!——《义海雄风》
+上帝为我作证，我不会再让自己挨饿了。——《乱世佳人》
 
 ### 📝 Blog
 
