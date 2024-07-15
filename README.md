@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-上帝为我作证，我不会再让自己挨饿了。——《乱世佳人》
+我总是非常依赖陌生人的仁慈。——《欲望号街车》
 
 ### 📝 Blog
 
