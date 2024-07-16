@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我总是非常依赖陌生人的仁慈。——《欲望号街车》
+一直向前游。—《海底总动员》
 
 ### 📝 Blog
 
