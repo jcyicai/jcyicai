@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-一直向前游。—《海底总动员》
+学习没有捷径。
 
 ### 📝 Blog
 
