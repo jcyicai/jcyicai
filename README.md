@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-学习没有捷径。
+时光如逝水，岁月不待人。
 
 ### 📝 Blog
 
