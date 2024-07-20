@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-妈妈说，‘做傻事的才是傻瓜。'——《阿甘正传，1994》
+越危险就越合我心意。
 
 ### 📝 Blog
 
