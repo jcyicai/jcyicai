@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-越危险就越合我心意。
+它让我如鱼得水。
 
 ### 📝 Blog
 
