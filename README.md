@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-它让我如鱼得水。
+这个城市似乎没有尽头。
 
 ### 📝 Blog
 
