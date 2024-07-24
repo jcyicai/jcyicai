@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我生于船，长与船，世界千变万化。
+我不要只是生存，我要活得有意义。
 
 ### 📝 Blog
 
