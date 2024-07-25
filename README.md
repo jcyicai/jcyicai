@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我不要只是生存，我要活得有意义。
+我是世界之王！
 
 ### 📝 Blog
 
