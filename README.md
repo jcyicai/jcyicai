@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我是世界之王！
+我感觉到一种需要——速度的需要!
 
 ### 📝 Blog
 
