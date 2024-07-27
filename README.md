@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我感觉到一种需要——速度的需要!
+它是我最好的朋友，总是很快乐，从不问问题。
 
 ### 📝 Blog
 
