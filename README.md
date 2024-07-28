@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-它是我最好的朋友，总是很快乐，从不问问题。
+做自己是一种荣耀，因为没有任何人能成为你。
 
 ### 📝 Blog
 
