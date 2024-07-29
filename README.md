@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-做自己是一种荣耀，因为没有任何人能成为你。
+我看着菜单，并不代表我想吃! ——《越狱》
 
 ### 📝 Blog
 
