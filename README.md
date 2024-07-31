@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-生命短暂，你应该享受快乐 。
+千里之行，始于足下。 — 老子
 
 ### 📝 Blog
 
