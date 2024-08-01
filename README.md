@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-千里之行，始于足下。 — 老子
+你一开口我就沦陷了；那是爱情的初见。—《老友记》
 
 ### 📝 Blog
 
