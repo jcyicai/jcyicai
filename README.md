@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-没有计划的目标只是一个愿望。 — 安托万·德·圣-埃克苏佩里
+为什么这么严肃？让我们笑起来。 —《黑暗骑士》
 
 ### 📝 Blog
 
