@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-为什么这么严肃？让我们笑起来。 —《黑暗骑士》
+爱众人，不恨人。 — 第三任哈里发
 
 ### 📝 Blog
 
