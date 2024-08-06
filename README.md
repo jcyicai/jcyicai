@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-爱众人，不恨人。 — 第三任哈里发
+秋天是第二个春天，每一片叶子都是一朵花。— 阿尔贝·加缪
 
 ### 📝 Blog
 
