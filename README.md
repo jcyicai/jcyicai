@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-秋天是第二个春天，每一片叶子都是一朵花。— 阿尔贝·加缪
+最终，我们只会后悔没有抓住的机会。 — 刘易斯·卡罗尔
 
 ### 📝 Blog
 
