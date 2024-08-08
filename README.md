@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-最终，我们只会后悔没有抓住的机会。 — 刘易斯·卡罗尔
+万物皆有美，只是并非所有人都能看到。 — 孔子
 
 ### 📝 Blog
 
