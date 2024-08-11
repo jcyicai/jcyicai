@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-尽力而为，随遇而安。 — 西奥多·罗斯福
+你必须稍微疯狂一点才能保持理智。 —《老友记》
 
 ### 📝 Blog
 
