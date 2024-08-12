@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你必须稍微疯狂一点才能保持理智。 —《老友记》
+我认为这是美好友谊的开始。 —《卡萨布兰卡》
 
 ### 📝 Blog
 
