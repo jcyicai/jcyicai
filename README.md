@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我认为这是美好友谊的开始。 —《卡萨布兰卡》
+成功不是幸福的钥匙。幸福是成功的钥匙。 — 阿尔伯特·施韦泽
 
 ### 📝 Blog
 
