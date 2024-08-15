@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-爱是激情，痴迷，是你无法离开的人。—《遇见乔·布莱克》
+爱与被爱是感受到两边的阳光。 — 大卫·维斯科特
 
 ### 📝 Blog
 
