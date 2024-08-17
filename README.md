@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-他们称之为奶酪皇堡。—《低俗小说》
+做自己，改变世界。 — 艾米·波勒
 
 ### 📝 Blog
 
