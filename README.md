@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-做自己，改变世界。 — 艾米·波勒
+艰难的道路常常通向美丽的目的地。
 
 ### 📝 Blog
 
