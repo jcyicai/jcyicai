@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-艰难的道路常常通向美丽的目的地。
+最好的报复是巨大的成功。 — 弗兰克·辛纳特拉
 
 ### 📝 Blog
 
