@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-最好的报复是巨大的成功。 — 弗兰克·辛纳特拉
+你使我完整，我将永远珍惜。 —《甜心先生》
 
 ### 📝 Blog
 
