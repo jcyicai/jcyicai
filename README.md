@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你是唯一能拯救我们的人。 —《100%生存》
+我才是那个敲门的人，不是你。 —《绝命毒师》
 
 ### 📝 Blog
 
