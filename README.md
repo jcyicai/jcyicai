@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-寒冬将至，我们必须做好准备。—《权力的游戏》
+我想相信比我自己更伟大的东西。 —《X档案》
 
 ### 📝 Blog
 
