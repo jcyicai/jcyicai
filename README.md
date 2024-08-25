@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我想相信比我自己更伟大的东西。 —《X档案》
+这就是我们必须遵循的道路，不可回头。—《曼达洛人》
 
 ### 📝 Blog
 
