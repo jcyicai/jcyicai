@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-不要等待。时机永远不会完全合适。 — 拿破仑·希尔
+你只活一次，但如果你做得好，一次足够。 — 梅·韦斯特
 
 ### 📝 Blog
 
