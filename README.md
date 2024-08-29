@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你只活一次，但如果你做得好，一次足够。 — 梅·韦斯特
+对明天实现的唯一限制是我们今天的怀疑。 —《白宫风云》
 
 ### 📝 Blog
 
