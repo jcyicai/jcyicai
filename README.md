@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-不要沉湎于过去，不要幻想未来。
+我们拥有的只有现在。
 
 ### 📝 Blog
 
