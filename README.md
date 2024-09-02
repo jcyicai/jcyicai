@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我们拥有的只有现在。
+最终，我们记住的不是敌人的话语，而是朋友的沉默。
 
 ### 📝 Blog
 
