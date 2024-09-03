@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-最终，我们记住的不是敌人的话语，而是朋友的沉默。
+好艺术家复制，伟大艺术家偷窃。
 
 ### 📝 Blog
 
