@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-好艺术家复制，伟大艺术家偷窃。
+任何地方的不公正都是对所有地方公正的威胁。
 
 ### 📝 Blog
 
