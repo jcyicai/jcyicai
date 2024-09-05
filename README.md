@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-任何地方的不公正都是对所有地方公正的威胁。
+生活是一场美丽的挣扎。
 
 ### 📝 Blog
 
