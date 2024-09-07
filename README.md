@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-成功不是你攀登的高度，而是你做出的积极差异。
+幸福是一把温暖的枪。
 
 ### 📝 Blog
 
