@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-幸福是一把温暖的枪。
+黑夜幽暗，充满恐惧。
 
 ### 📝 Blog
 
