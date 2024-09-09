@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-黑夜幽暗，充满恐惧。
+教育是一切职业之母。
 
 ### 📝 Blog
 
