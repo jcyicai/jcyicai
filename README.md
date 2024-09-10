@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-教育是一切职业之母。
+系好安全带，这将是一个颠簸的夜晚。
 
 ### 📝 Blog
 
