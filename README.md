@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-系好安全带，这将是一个颠簸的夜晚。
+跌倒七次，站起来八次。
 
 ### 📝 Blog
 
