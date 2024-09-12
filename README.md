@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-跌倒七次，站起来八次。
+我本可以成为强者。
 
 ### 📝 Blog
 
