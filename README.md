@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我不是个聪明人，但我知道什么是爱。
+梦想的原料。
 
 ### 📝 Blog
 
