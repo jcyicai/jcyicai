@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-梦想的原料。
+月亮是孤独者的朋友，愿倾听他们的心声。
 
 ### 📝 Blog
 
