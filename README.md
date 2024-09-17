@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-月亮是孤独者的朋友，愿倾听他们的心声。
+我可以接受失败，每个人都会在某些事情上失败。
 
 ### 📝 Blog
 
