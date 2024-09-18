@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我可以接受失败，每个人都会在某些事情上失败。
+生活是在你忙着制定其他计划时发生的。
 
 ### 📝 Blog
 
