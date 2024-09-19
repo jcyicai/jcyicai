@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-生活是在你忙着制定其他计划时发生的。
+不是所有徘徊的人都迷失了。
 
 ### 📝 Blog
 
