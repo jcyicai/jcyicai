@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我只需得一次肠胃炎就能达到目标体重。—《穿普拉达的女王》
+世界是个大舞台，男人女人皆为演员。
 
 ### 📝 Blog
 
