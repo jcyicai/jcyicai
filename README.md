@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-世界是个大舞台，男人女人皆为演员。
+保持冷静，继续前行。
 
 ### 📝 Blog
 
