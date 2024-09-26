@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-保持冷静，继续前行。
+棒球里不许哭泣！
 
 ### 📝 Blog
 
