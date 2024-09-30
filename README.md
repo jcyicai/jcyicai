@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-唯一真正的错误是我们没有从中学到任何东西。
+我们都是伟大国家的一部分。
 
 ### 📝 Blog
 
