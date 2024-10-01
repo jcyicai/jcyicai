@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我们都是伟大国家的一部分。
+秋叶提醒我们衰老的美丽。
 
 ### 📝 Blog
 
