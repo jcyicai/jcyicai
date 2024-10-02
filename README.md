@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-秋叶提醒我们衰老的美丽。
+行动吧，就好像你的所作所为会带来改变。确实如此。
 
 ### 📝 Blog
 
