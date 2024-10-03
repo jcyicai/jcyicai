@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-行动吧，就好像你的所作所为会带来改变。确实如此。
+不要看时间，做自己该做的事。继续前进。
 
 ### 📝 Blog
 
