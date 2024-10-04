@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-不要看时间，做自己该做的事。继续前进。
+成功是你跌到谷底时反弹的高度。
 
 ### 📝 Blog
 
