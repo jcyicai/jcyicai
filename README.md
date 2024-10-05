@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-成功是你跌到谷底时反弹的高度。
+预测未来的最好方法是去创造它。
 
 ### 📝 Blog
 
