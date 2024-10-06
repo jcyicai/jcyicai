@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-预测未来的最好方法是去创造它。
+每天做一件让你害怕的事。
 
 ### 📝 Blog
 
