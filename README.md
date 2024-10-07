@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-每天做一件让你害怕的事。
+知识的唯一来源是经验。
 
 ### 📝 Blog
 
