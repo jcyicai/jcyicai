@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-知识的唯一来源是经验。
+我们想什么，就成为什么。
 
 ### 📝 Blog
 
