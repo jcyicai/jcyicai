@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我们想什么，就成为什么。
+幸福不是现成的东西，它来自你自己的行动。
 
 ### 📝 Blog
 
