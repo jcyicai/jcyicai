@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-幸福不是现成的东西，它来自你自己的行动。
+珍惜与家人在一起的时光，因为它们稍纵即逝。
 
 ### 📝 Blog
 
