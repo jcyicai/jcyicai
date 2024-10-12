@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-自由从未被赋予；它是赢得的。
+拥有朋友的唯一方式就是成为朋友。
 
 ### 📝 Blog
 
