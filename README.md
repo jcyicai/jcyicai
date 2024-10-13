@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-拥有朋友的唯一方式就是成为朋友。
+每一刻都是新的开始。
 
 ### 📝 Blog
 
