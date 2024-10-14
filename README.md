@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-每一刻都是新的开始。
+如果你想过上幸福的生活，把它与目标联系起来。
 
 ### 📝 Blog
 
