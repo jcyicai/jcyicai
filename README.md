@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我们就是我们反复做的事情。
+唯一不可能的旅程是你从未开始的旅程。
 
 ### 📝 Blog
 
