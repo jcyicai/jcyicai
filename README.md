@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-唯一不可能的旅程是你从未开始的旅程。
+从未犯错的人从未尝试过任何新事物。
 
 ### 📝 Blog
 
