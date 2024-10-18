@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-从未犯错的人从未尝试过任何新事物。
+每个困难中都蕴藏着机会。
 
 ### 📝 Blog
 
