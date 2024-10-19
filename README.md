@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-每个困难中都蕴藏着机会。
+成功是日复一日重复的微小努力的总和。
 
 ### 📝 Blog
 
