@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-成功是日复一日重复的微小努力的总和。
+生活要么是一场大胆的冒险，要么毫无意义。
 
 ### 📝 Blog
 
