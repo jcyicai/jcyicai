@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-生活要么是一场大胆的冒险，要么毫无意义。
+成功不在于你拥有什么，而在于你是谁。
 
 ### 📝 Blog
 
