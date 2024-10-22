@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-成功不在于你拥有什么，而在于你是谁。
+只要有梦想，就一定能实现。
 
 ### 📝 Blog
 
