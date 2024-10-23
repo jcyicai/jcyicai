@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-只要有梦想，就一定能实现。
+生命是短暂的，是用来生活的。
 
 ### 📝 Blog
 
