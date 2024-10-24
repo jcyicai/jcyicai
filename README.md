@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-生命是短暂的，是用来生活的。
+思想决定一切。
 
 ### 📝 Blog
 
