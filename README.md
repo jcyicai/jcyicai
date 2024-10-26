@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-过去的损失和失败经验，应是你采取行动，而非不采取行动的理由。
+一个人离问题愈远就愈理想主义。
 
 ### 📝 Blog
 
