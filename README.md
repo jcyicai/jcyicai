@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-一个人离问题愈远就愈理想主义。
+不要数日子，让日子有意义。
 
 ### 📝 Blog
 
