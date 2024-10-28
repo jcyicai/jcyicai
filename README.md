@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-不要数日子，让日子有意义。
+如果生活是可预测的，它就不再是生活。
 
 ### 📝 Blog
 
