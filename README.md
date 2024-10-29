@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-如果生活是可预测的，它就不再是生活。
+唯一真正的智慧在于知道你一无所知。
 
 ### 📝 Blog
 
