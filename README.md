@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-唯一真正的智慧在于知道你一无所知。
+这是万圣节；一年中我们可以成为任何人的夜晚。
 
 ### 📝 Blog
 
