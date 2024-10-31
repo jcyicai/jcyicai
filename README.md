@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-这是万圣节；一年中我们可以成为任何人的夜晚。
+因自我怀疑而失去的梦想比因失败而失去的更多。
 
 ### 📝 Blog
 
