@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-因自我怀疑而失去的梦想比因失败而失去的更多。
+人生苦短，活出精彩。
 
 ### 📝 Blog
 
