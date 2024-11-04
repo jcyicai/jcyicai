@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-每一项成就都始于尝试的决定。
+吸入勇气，呼出恐惧。
 
 ### 📝 Blog
 
