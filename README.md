@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-吸入勇气，呼出恐惧。
+未来取决于你今天的所作所为。
 
 ### 📝 Blog
 
