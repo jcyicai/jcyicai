@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-未来取决于你今天的所作所为。
+冬天不是一个季节，而是一个庆典。
 
 ### 📝 Blog
 
