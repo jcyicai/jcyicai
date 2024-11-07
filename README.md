@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-冬天不是一个季节，而是一个庆典。
+你必须做你认为自己做不到的事情。
 
 ### 📝 Blog
 
