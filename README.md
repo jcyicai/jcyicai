@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你的生活就是你的信息。
+时间飞逝，但它的影子留下了。
 
 ### 📝 Blog
 
