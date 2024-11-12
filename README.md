@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-时间飞逝，但它的影子留下了。
+继续前行，全力以赴。
 
 ### 📝 Blog
 
