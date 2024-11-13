@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-继续前行，全力以赴。
+沉默也是一种回答。
 
 ### 📝 Blog
 
