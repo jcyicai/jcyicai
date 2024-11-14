@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-沉默也是一种回答。
+时间是一个人最宝贵的财富。
 
 ### 📝 Blog
 
