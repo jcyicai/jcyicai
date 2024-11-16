@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-梦想是我们性格的基石。
+勇气是在压力下保持优雅。
 
 ### 📝 Blog
 
