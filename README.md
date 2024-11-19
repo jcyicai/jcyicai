@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-做你自己故事里的英雄。
+做你自己，但永远要成为更好的自己。
 
 ### 📝 Blog
 
