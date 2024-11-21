@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-一帆风顺的大海造就不了熟练的水手。
+没有一片雪花会落在错误的地方。
 
 ### 📝 Blog
 
