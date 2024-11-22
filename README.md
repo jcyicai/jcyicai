@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-没有一片雪花会落在错误的地方。
+不要梦想你的生活，而要实现你的梦想。
 
 ### 📝 Blog
 
