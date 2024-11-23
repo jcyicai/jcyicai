@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-不要梦想你的生活，而要实现你的梦想。
+你不需要伟大才能开始，但你必须开始才能伟大。
 
 ### 📝 Blog
 
