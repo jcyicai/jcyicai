@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你不需要伟大才能开始，但你必须开始才能伟大。
+以爱去做小事。
 
 ### 📝 Blog
 
