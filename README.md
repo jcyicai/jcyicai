@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-以爱去做小事。
+勇气是知道什么不该害怕。
 
 ### 📝 Blog
 
