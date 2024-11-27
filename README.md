@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我们可能会遇到许多失败，但我们不能被打败。
+感恩节是团聚与感恩的时刻。
 
 ### 📝 Blog
 
