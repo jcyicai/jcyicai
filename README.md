@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-感恩节是团聚与感恩的时刻。
+你今天所做的一切，可以改善你所有的明天。
 
 ### 📝 Blog
 
