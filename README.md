@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-没有人能在取得你的同意前让你自己感到自卑。
+做自己就是你所能做的一切。
 
 ### 📝 Blog
 
