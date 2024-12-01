@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-做自己就是你所能做的一切。
+心有它的理由。
 
 ### 📝 Blog
 
