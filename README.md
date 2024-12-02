@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-心有它的理由。
+让自己快乐的最好方式就是去让别人快乐。
 
 ### 📝 Blog
 
