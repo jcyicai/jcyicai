@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-让自己快乐的最好方式就是去让别人快乐。
+做出伟大工作的唯一方式是热爱你所做的事。
 
 ### 📝 Blog
 
