@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-做出伟大工作的唯一方式是热爱你所做的事。
+快乐是最简单的感恩形式。
 
 ### 📝 Blog
 
