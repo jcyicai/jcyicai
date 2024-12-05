@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-快乐是最简单的感恩形式。
+机会不会发生，是你创造了它们。
 
 ### 📝 Blog
 
