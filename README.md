@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-机会不会发生，是你创造了它们。
+坚持不是一场长跑，而是一次次短跑。
 
 ### 📝 Blog
 
