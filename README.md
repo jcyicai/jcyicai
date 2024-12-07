@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-坚持不是一场长跑，而是一次次短跑。
+简单是终极的智慧。
 
 ### 📝 Blog
 
