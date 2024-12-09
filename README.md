@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-任何一份善意，无论多么微小，都不会被浪费。
+智慧始于好奇。
 
 ### 📝 Blog
 
