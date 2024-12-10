@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-智慧始于好奇。
+不是生命中的岁月，而是岁月中的生命。
 
 ### 📝 Blog
 
