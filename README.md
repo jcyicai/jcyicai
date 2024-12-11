@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-不是生命中的岁月，而是岁月中的生命。
+每朵花都必须从泥土中成长。
 
 ### 📝 Blog
 
