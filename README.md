@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-每朵花都必须从泥土中成长。
+小小的善举可以带来巨大的改变。
 
 ### 📝 Blog
 
