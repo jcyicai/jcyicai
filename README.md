@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-小小的善举可以带来巨大的改变。
+只有停止尝试时，你才会失败。
 
 ### 📝 Blog
 
