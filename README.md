@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-只有停止尝试时，你才会失败。
+冲突越难，胜利越大。
 
 ### 📝 Blog
 
