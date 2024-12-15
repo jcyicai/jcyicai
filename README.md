@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-冲突越难，胜利越大。
+没有黑暗，星星无法闪耀。
 
 ### 📝 Blog
 
