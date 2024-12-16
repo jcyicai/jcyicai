@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-没有黑暗，星星无法闪耀。
+犯错是你正在努力的证明。
 
 ### 📝 Blog
 
