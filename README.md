@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-犯错是你正在努力的证明。
+艰难常常为普通人准备非凡的命运。
 
 ### 📝 Blog
 
