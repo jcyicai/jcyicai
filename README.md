@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-希望是灵魂的心跳。
+让你的信念比恐惧更强大。
 
 ### 📝 Blog
 
