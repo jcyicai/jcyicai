@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-要欣赏雪花的美丽，就必须站在寒冷中。
+幸福是一只温暖的小狗。
 
 ### 📝 Blog
 
