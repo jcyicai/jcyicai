@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-幸福是一只温暖的小狗。
+抬头看天，这是生活的秘诀。
 
 ### 📝 Blog
 
