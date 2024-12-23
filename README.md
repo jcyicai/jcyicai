@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-抬头看天，这是生活的秘诀。
+一切安详，一切明亮。
 
 ### 📝 Blog
 
