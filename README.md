@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-一切安详，一切明亮。
+圣诞节不是一个日期，而是一种心境。
 
 ### 📝 Blog
 
