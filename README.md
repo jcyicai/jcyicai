@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-圣诞节不是一个日期，而是一种心境。
+生活很艰难，但你也很坚强。
 
 ### 📝 Blog
 
