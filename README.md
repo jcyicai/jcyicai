@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-生活很艰难，但你也很坚强。
+沐浴阳光，畅游海洋，呼吸自由的空气。
 
 ### 📝 Blog
 
