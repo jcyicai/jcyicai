@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-沐浴阳光，畅游海洋，呼吸自由的空气。
+新的开始的最佳时机就是现在。
 
 ### 📝 Blog
 
