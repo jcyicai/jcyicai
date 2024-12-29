@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你的气场吸引你的圈子。
+做些未来的你会感激的事情。
 
 ### 📝 Blog
 
