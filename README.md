@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-做些未来的你会感激的事情。
+每一次日落都是重启的机会。
 
 ### 📝 Blog
 
