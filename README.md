@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-每一次日落都是重启的机会。
+每一个新的开始都来自某个开始的结束。
 
 ### 📝 Blog
 
