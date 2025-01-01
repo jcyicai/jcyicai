@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-每一个新的开始都来自某个开始的结束。
+一束阳光足以驱散许多阴影。
 
 ### 📝 Blog
 
