@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-一束阳光足以驱散许多阴影。
+生活中唯一不变的就是变化。
 
 ### 📝 Blog
 
