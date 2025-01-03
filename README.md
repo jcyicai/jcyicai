@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-生活中唯一不变的就是变化。
+无论多大年龄，你都可以重新设定目标或做新的梦。
 
 ### 📝 Blog
 
