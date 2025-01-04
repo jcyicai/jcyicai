@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-无论多大年龄，你都可以重新设定目标或做新的梦。
+你的生活不会因偶然变好，而是因改变变好。
 
 ### 📝 Blog
 
