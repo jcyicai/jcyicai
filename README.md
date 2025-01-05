@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你的生活不会因偶然变好，而是因改变变好。
+怀疑比失败扼杀更多梦想。
 
 ### 📝 Blog
 
