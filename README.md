@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-怀疑比失败扼杀更多梦想。
+寒冬之中，温暖藏在一碗粥里。
 
 ### 📝 Blog
 
