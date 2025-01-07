@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-寒冬之中，温暖藏在一碗粥里。
+向阳而立，阴影自会落在身后。
 
 ### 📝 Blog
 
