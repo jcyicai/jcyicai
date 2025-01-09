@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-幸福在当下，不在未来。
+当言语无力时，音乐能表达一切。
 
 ### 📝 Blog
 
