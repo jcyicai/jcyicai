@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-当言语无力时，音乐能表达一切。
+你无法改变过去，但你可以改变结局。
 
 ### 📝 Blog
 
