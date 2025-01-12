@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你能经历的最大冒险是活出梦想中的生活。
+生活中重要的不是我们拥有什么，而是我们拥有谁。
 
 ### 📝 Blog
 
