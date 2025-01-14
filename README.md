@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-一旦选择了希望，一切皆有可能。
+梦想要大，起步要小，行动要快。
 
 ### 📝 Blog
 
