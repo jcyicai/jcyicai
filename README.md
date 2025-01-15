@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-梦想要大，起步要小，行动要快。
+内心最重要。
 
 ### 📝 Blog
 
