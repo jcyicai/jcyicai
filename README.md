@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-做你内心认为正确的事。
+我们变成了世上最熟悉的陌生人。
 
 ### 📝 Blog
 
