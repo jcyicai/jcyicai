@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我们变成了世上最熟悉的陌生人。
+成功是对自己和实现方式感到满意。
 
 ### 📝 Blog
 
