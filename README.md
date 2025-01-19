@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-成功是对自己和实现方式感到满意。
+你的态度决定了你的高度。
 
 ### 📝 Blog
 
