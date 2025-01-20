@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你的态度决定了你的高度。
+幸福在分享，不在拥有。
 
 ### 📝 Blog
 
