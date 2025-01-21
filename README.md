@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-幸福在分享，不在拥有。
+希望是清醒的梦。
 
 ### 📝 Blog
 
