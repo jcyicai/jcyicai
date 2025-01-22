@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-希望是清醒的梦。
+用今天点亮明天。
 
 ### 📝 Blog
 
