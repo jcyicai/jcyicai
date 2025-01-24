@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-别被问题推着走，要被梦想引导着前进。
+能力越大，责任越重。
 
 ### 📝 Blog
 
