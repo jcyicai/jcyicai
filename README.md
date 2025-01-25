@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-能力越大，责任越重。
+你留下，或者我跟你走。——《海角七号》
 
 ### 📝 Blog
 
