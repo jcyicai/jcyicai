@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你留下，或者我跟你走。——《海角七号》
+当天才不努力时，努力可以击倒天才。
 
 ### 📝 Blog
 
