@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-当天才不努力时，努力可以击倒天才。
+旧年怀感恩而去，新年携希望而来。
 
 ### 📝 Blog
 
