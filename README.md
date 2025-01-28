@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-旧年怀感恩而去，新年携希望而来。
+团聚的喜悦让春节成为一年中最幸福的时光。
 
 ### 📝 Blog
 
