@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-团聚的喜悦让春节成为一年中最幸福的时光。
+阅读之于心灵，犹如运动之于身体。
 
 ### 📝 Blog
 
