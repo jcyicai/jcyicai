@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-阅读之于心灵，犹如运动之于身体。
+一切的起头就是不要只会说而是开始做。
 
 ### 📝 Blog
 
