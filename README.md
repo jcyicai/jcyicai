@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-一切的起头就是不要只会说而是开始做。
+幸福不是拥有你想要的，而是珍惜你拥有的。
 
 ### 📝 Blog
 
