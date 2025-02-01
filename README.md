@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-幸福不是拥有你想要的，而是珍惜你拥有的。
+时间是我们最需要却最浪费的东西。
 
 ### 📝 Blog
 
