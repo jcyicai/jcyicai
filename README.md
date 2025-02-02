@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-时间是我们最需要却最浪费的东西。
+在春天，每片叶子都是未来的花朵。
 
 ### 📝 Blog
 
