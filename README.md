@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-在春天，每片叶子都是未来的花朵。
+每天迈出小步，终将收获大成果。
 
 ### 📝 Blog
 
