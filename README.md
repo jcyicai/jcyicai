@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-伟大的成就从未源于舒适区。
+行动是最直接的回应。
 
 ### 📝 Blog
 
