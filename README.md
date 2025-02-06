@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-行动是最直接的回应。
+除非你去做，否则什么都不会发生。
 
 ### 📝 Blog
 
