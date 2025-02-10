@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-恭贺新禧，万事如意。
+此心安处是吾乡。
 
 ### 📝 Blog
 
