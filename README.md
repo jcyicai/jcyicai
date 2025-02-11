@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-此心安处是吾乡。
+天生我材必有用。
 
 ### 📝 Blog
 
