@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-天生我材必有用。
+完成比完美更重要。
 
 ### 📝 Blog
 
