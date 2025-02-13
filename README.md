@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-完成比完美更重要。
+爱是你与一切之间的桥梁。
 
 ### 📝 Blog
 
