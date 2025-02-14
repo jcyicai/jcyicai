@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-爱是你与一切之间的桥梁。
+我宁愿死于激情也不愿死于无聊。
 
 ### 📝 Blog
 
