@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我宁愿死于激情也不愿死于无聊。
+梦想，就是一种计划形式。
 
 ### 📝 Blog
 
