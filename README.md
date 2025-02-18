@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-梦想不会自己成真，除非你努力去实现。
+最好的种树时间是10年前，其次是现在。
 
 ### 📝 Blog
 
