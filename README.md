@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-最好的种树时间是10年前，其次是现在。
+没有压力，就没有钻石。
 
 ### 📝 Blog
 
