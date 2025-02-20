@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-没有压力，就没有钻石。
+唯一的限制是你的心态。
 
 ### 📝 Blog
 
