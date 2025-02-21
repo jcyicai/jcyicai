@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-唯一的限制是你的心态。
+每天都是一个新开始。
 
 ### 📝 Blog
 
