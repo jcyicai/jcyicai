@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-每天都是一个新开始。
+爱，让生命有了意义。
 
 ### 📝 Blog
 
