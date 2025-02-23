@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-爱，让生命有了意义。
+幸福是自己创造的。
 
 ### 📝 Blog
 
