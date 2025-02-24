@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-幸福是自己创造的。
+成功不是偶然的。
 
 ### 📝 Blog
 
