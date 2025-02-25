@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-成功不是偶然的。
+我们内在的成就会改变外在的现实。
 
 ### 📝 Blog
 
