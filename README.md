@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我们内在的成就会改变外在的现实。
+幸福是一种方向，而不是一个地方。
 
 ### 📝 Blog
 
