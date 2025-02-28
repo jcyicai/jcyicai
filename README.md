@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-力量来自于你觉得撑不下去却依然坚持的时刻。
+心旷神怡，事事顺利。 
 
 ### 📝 Blog
 
