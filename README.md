@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-当生活遇到瓶颈，继续向前就对了。——《料理鼠王》
+失败的唯一方式是不去尝试。
 
 ### 📝 Blog
 
