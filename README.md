@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-失败的唯一方式是不去尝试。
+成功源于努力，而非渴望。
 
 ### 📝 Blog
 
