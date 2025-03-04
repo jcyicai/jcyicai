@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-成功源于努力，而非渴望。
+你读的书越多，你知道的事就越多。
 
 ### 📝 Blog
 
