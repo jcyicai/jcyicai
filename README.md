@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你读的书越多，你知道的事就越多。
+不要等待机会，创造机会。
 
 ### 📝 Blog
 
