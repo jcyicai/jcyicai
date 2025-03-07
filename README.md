@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-伟大源于微小坚持，而非冲动。
+你本来就很美。
 
 ### 📝 Blog
 
