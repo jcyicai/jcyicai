@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-不要害怕做与众不同的自己，走自己的路。
+没有什么是你能做却做不到的。——披头士乐队
 
 ### 📝 Blog
 
