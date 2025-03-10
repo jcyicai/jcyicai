@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-没有什么是你能做却做不到的。——披头士乐队
+越努力，成就感越强。
 
 ### 📝 Blog
 
