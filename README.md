@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-真正的成功是激励他人行动。
+做一个幸福的人。
 
 ### 📝 Blog
 
