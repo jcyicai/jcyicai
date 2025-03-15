@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-做一个幸福的人。
+谨慎和勤奋，带来好运气。
 
 ### 📝 Blog
 
