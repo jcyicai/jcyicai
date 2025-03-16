@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-谨慎和勤奋，带来好运气。
+成功的关键是专注于目标，而非障碍。
 
 ### 📝 Blog
 
