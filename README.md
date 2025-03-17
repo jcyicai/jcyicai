@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-成功的关键是专注于目标，而非障碍。
+不要限制你的挑战，挑战你的极限。
 
 ### 📝 Blog
 
