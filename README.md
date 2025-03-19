@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-只有在字典里，成功才排在工作之前。
+春天会到来，幸福也会随之而来。
 
 ### 📝 Blog
 
