@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-春天会到来，幸福也会随之而来。
+成功是成为最好的自己。
 
 ### 📝 Blog
 
