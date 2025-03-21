@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-成功是成为最好的自己。
+天无绝人之路。
 
 ### 📝 Blog
 
