@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-天无绝人之路。
+时间是一只永远在飞翔的鸟。
 
 ### 📝 Blog
 
