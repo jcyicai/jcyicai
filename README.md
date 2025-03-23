@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-时间是一只永远在飞翔的鸟。
+凡事都墨守成规，就毫无乐趣了。
 
 ### 📝 Blog
 
