@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-凡事都墨守成规，就毫无乐趣了。
+你可以做任何事，但不是所有事。
 
 ### 📝 Blog
 
