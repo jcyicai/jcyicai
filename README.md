@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你可以做任何事，但不是所有事。
+我们唯一需要害怕的是害怕本身。
 
 ### 📝 Blog
 
