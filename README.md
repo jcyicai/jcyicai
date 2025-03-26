@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我们唯一需要害怕的是害怕本身。
+忠于自我是最高成就。
 
 ### 📝 Blog
 
