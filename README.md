@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-忠于自我是最高成就。
+在无路处开辟新径。
 
 ### 📝 Blog
 
