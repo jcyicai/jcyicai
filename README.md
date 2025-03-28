@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-在无路处开辟新径。
+失之毫厘，差之千里。 
 
 ### 📝 Blog
 
