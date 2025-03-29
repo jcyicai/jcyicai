@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-失之毫厘，差之千里。 
+幸福的生活存在于心绪的宁静之中。
 
 ### 📝 Blog
 
