@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-幸福的生活存在于心绪的宁静之中。
+有离开海岸的勇气，才能横渡海洋。
 
 ### 📝 Blog
 
