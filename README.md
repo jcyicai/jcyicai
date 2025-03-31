@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-有离开海岸的勇气，才能横渡海洋。
+每个愚人节的恶作剧都提醒我们用笑声生活。
 
 ### 📝 Blog
 
