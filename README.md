@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-每个愚人节的恶作剧都提醒我们用笑声生活。
+今日的勇敢决断能激发一生的转变。
 
 ### 📝 Blog
 
