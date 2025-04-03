@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-进步始于一次勇敢的迈步。
+清明节邀请我们以静思与敬意祭奠祖先。
 
 ### 📝 Blog
 
