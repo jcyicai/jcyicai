@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-如果你想获得伟大，别再请求许可。
+成功不是从不跌倒，而是每次跌倒后都能重新站起来。
 
 ### 📝 Blog
 
