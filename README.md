@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-成功不是从不跌倒，而是每次跌倒后都能重新站起来。
+笑声能重燃疲惫的心灵，修复破碎的情感。
 
 ### 📝 Blog
 
