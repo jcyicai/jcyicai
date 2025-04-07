@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-笑声能重燃疲惫的心灵，修复破碎的情感。
+得失成败置之度外，只求竭尽所能，无愧于心。 --傅雷
 
 ### 📝 Blog
 
