@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-得失成败置之度外，只求竭尽所能，无愧于心。 --傅雷
+知识在言说，智慧在倾听。
 
 ### 📝 Blog
 
