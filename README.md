@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-知识在言说，智慧在倾听。
+真诚的努力，能将阻碍转化为真正进步的垫脚石。
 
 ### 📝 Blog
 
