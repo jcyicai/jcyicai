@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-真诚的努力，能将阻碍转化为真正进步的垫脚石。
+永远向前，绝不后退。
 
 ### 📝 Blog
 
