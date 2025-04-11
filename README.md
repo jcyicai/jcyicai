@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-永远向前，绝不后退。
+人非生而知之。
 
 ### 📝 Blog
 
