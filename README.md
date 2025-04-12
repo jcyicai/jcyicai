@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-人非生而知之。
+情人眼里出西施。
 
 ### 📝 Blog
 
