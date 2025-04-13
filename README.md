@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-情人眼里出西施。
+家庭始终是风暴中最安全的港湾。
 
 ### 📝 Blog
 
