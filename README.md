@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-宁静时刻展现出我们周围日常生活中隐藏的美。
+行动展示真正优先。
 
 ### 📝 Blog
 
