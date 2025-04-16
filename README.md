@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-行动展示真正优先。
+简单生活，让他人也能简单生活。
 
 ### 📝 Blog
 
