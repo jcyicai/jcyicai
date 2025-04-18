@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-每一分努力，不论多小，都构建更美好未来。
+年轻就有无限的可能。
 
 ### 📝 Blog
 
