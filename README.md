@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-年轻就有无限的可能。
+勇敢去争取想要的生活，你终能得偿所愿。-–欧普拉‧温芙蕾
 
 ### 📝 Blog
 
