@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-每个真诚行为都为信任播下种子。
+善良改变世界，每一次充满同情的行动都至关重要。
 
 ### 📝 Blog
 
