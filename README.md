@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-书籍确实开启了超越想象的世界之门。
+希望与爱让每个挑战变得更容易。
 
 ### 📝 Blog
 
