@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-勇气是点燃非凡成就的火花。
+感恩让平凡时刻化为每日的丰盛祝福。
 
 ### 📝 Blog
 
