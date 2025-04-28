@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-感恩让平凡时刻化为每日的丰盛祝福。
+简单驱散纷扰，照亮通往内心平静的道路。
 
 ### 📝 Blog
 
