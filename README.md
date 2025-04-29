@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-简单驱散纷扰，照亮通往内心平静的道路。
+你的梦想至关重要，每天都要以不懈热情追求。
 
 ### 📝 Blog
 
