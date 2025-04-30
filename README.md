@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你的梦想至关重要，每天都要以不懈热情追求。
+劳动是最可靠的财富。
 
 ### 📝 Blog
 
