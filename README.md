@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-劳动是最可靠的财富。
+汗水是成功的润滑剂。
 
 ### 📝 Blog
 
