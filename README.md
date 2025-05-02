@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-汗水是成功的润滑剂。
+做你的事，别在意别人是否喜欢。
 
 ### 📝 Blog
 
