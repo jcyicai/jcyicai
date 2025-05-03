@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-做你的事，别在意别人是否喜欢。
+坚持你的梦想，永不放弃。
 
 ### 📝 Blog
 
