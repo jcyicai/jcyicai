@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-死胡同只是一个很好的转弯之处。
+你今天唯一能做的事就是微笑。
 
 ### 📝 Blog
 
