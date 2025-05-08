@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你今天唯一能做的事就是微笑。
+你可以，你应该，若你勇敢，你会做到。
 
 ### 📝 Blog
 
