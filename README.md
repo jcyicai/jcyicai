@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你可以，你应该，若你勇敢，你会做到。
+人生苦短，所以每天不要带着遗憾醒来。
 
 ### 📝 Blog
 
