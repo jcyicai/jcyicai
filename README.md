@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-人生苦短，所以每天不要带着遗憾醒来。
+生活像骑自行车，必须不断前进。
 
 ### 📝 Blog
 
