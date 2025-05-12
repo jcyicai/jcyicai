@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-生活像骑自行车，必须不断前进。
+目的地不是地方，而是一种新视角。
 
 ### 📝 Blog
 
