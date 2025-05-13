@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-目的地不是地方，而是一种新视角。
+有人寻找美丽之地，有人创造美丽之地。
 
 ### 📝 Blog
 
