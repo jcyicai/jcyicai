@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-有人寻找美丽之地，有人创造美丽之地。
+你如何处理失败决定你的成功。
 
 ### 📝 Blog
 
