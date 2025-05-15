@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你如何处理失败决定你的成功。
+我找到了10,000种行不通的方法。
 
 ### 📝 Blog
 
