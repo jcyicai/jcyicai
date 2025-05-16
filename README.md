@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我找到了10,000种行不通的方法。
+死亡是生命的一部分，是我们注定要面对的一件事。
 
 ### 📝 Blog
 
