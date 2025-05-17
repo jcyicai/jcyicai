@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-死亡是生命的一部分，是我们注定要面对的一件事。
+世界上只有被追求者和追求者，忙碌者和疲惫者。　　
 
 ### 📝 Blog
 
