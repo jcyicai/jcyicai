@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-世界上只有被追求者和追求者，忙碌者和疲惫者。　　
+生活很昂贵，你需要负责。
 
 ### 📝 Blog
 
