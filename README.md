@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-有提问的年份，也有回答的年份。
+决定如何使用给予我们的时间。
 
 ### 📝 Blog
 
