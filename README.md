@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-决定如何使用给予我们的时间。
+我们每个人都超越了自己最糟的错误。
 
 ### 📝 Blog
 
