@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-罗马不是一天造成的。
+许愿和计划需要同样的能量。
 
 ### 📝 Blog
 
