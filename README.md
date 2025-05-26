@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-许愿和计划需要同样的能量。
+你无法改变本质，只能改变行为。
 
 ### 📝 Blog
 
