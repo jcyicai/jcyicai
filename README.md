@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你无法改变本质，只能改变行为。
+好头脑不够，必须善加利用。
 
 ### 📝 Blog
 
