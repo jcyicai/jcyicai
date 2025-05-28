@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-好头脑不够，必须善加利用。
+成功的起点是你决定成功的那一刻。
 
 ### 📝 Blog
 
