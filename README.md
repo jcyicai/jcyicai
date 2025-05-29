@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-成功的起点是你决定成功的那一刻。
+减轻他人负担的人绝非无用。
 
 ### 📝 Blog
 
