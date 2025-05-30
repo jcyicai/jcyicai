@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-减轻他人负担的人绝非无用。
+只有你自己可以掌控你的未来。
 
 ### 📝 Blog
 
