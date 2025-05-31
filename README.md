@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-只有你自己可以掌控你的未来。
+孩子之所以能看到魔法，是因为他们在寻找。
 
 ### 📝 Blog
 
