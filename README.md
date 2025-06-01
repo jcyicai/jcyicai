@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-孩子之所以能看到魔法，是因为他们在寻找。
+时间可抚平一切创伤。
 
 ### 📝 Blog
 
