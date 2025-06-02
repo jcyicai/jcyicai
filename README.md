@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-时间可抚平一切创伤。
+只要有一缕阳光和一抹淡粉，万事皆有可能。
 
 ### 📝 Blog
 
