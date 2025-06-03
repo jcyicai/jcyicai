@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-只要有一缕阳光和一抹淡粉，万事皆有可能。
+珍惜胜利，利用它们，但别满足。
 
 ### 📝 Blog
 
