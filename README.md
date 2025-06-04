@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-珍惜胜利，利用它们，但别满足。
+你天生适合奋斗，但值得被爱。
 
 ### 📝 Blog
 
