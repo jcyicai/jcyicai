@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-春风得意马蹄疾，一日看尽长安花。
+爱永远不会嫌晚。
 
 ### 📝 Blog
 
