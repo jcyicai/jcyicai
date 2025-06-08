@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-爱永远不会嫌晚。
+生活是关于产生影响，而不是赚钱。
 
 ### 📝 Blog
 
