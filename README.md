@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-生活是关于产生影响，而不是赚钱。
+你有勇气要求，生活就会给予。
 
 ### 📝 Blog
 
