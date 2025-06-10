@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你有勇气要求，生活就会给予。
+不要追求成功，而要追求有价值。
 
 ### 📝 Blog
 
