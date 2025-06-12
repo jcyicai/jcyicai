@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-真正的富有，是孩子在你一无所有时依然拥抱你。
+你不射门，就永远得不了分。
 
 ### 📝 Blog
 
