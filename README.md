@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你不射门，就永远得不了分。
+没有人富有到可以赎回自己的过去。
 
 ### 📝 Blog
 
