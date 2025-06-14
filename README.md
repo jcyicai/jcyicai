@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-没有人富有到可以赎回自己的过去。
+跟随自己的心，但要保持清醒的头脑。
 
 ### 📝 Blog
 
