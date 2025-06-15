@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-跟随自己的心，但要保持清醒的头脑。
+人生重在给予，而非索取。
 
 ### 📝 Blog
 
