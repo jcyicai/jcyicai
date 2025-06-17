@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-教育需要花钱，但无知也需要。
+我放下现在的自己，我才能成为可能的自己。
 
 ### 📝 Blog
 
