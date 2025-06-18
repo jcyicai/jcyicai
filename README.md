@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我放下现在的自己，我才能成为可能的自己。
+幸福不是现成的。它来自你的行动。
 
 ### 📝 Blog
 
