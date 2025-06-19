@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-幸福不是现成的。它来自你的行动。
+我们太多人没有实现梦想，因为我们活在恐惧中。
 
 ### 📝 Blog
 
