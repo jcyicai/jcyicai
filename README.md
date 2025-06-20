@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我们太多人没有实现梦想，因为我们活在恐惧中。
+我能否将你比作夏天？——莎士比亚
 
 ### 📝 Blog
 
