@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我能否将你比作夏天？——莎士比亚
+迎接并战胜挑战，让生活充满意义。
 
 ### 📝 Blog
 
