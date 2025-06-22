@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-迎接并战胜挑战，让生活充满意义。
+重复旧行为，只会得到旧结果。
 
 ### 📝 Blog
 
