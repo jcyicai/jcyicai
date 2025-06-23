@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-重复旧行为，只会得到旧结果。
+得不到想要的，有时反而是幸运。
 
 ### 📝 Blog
 
