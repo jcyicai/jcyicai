@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-得不到想要的，有时反而是幸运。
+避免批评的唯一方法就是什么都不做。
 
 ### 📝 Blog
 
