@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-避免批评的唯一方法就是什么都不做。
+伟大的人在准备好前就行动。
 
 ### 📝 Blog
 
