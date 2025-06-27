@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-伟大的人在准备好前就行动。
+好好生活，慢慢相遇。
 
 ### 📝 Blog
 
