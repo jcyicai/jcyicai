@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-好好生活，慢慢相遇。
+跨过星河迈过月亮去迎接更好的自己。
 
 ### 📝 Blog
 
