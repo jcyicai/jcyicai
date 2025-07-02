@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-人生如骑行，前进即平衡。
+唯一真正的智慧，是知道自己一无所知。
 
 ### 📝 Blog
 
