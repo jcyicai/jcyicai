@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-唯一真正的智慧，是知道自己一无所知。
+沉默是轻蔑最完美的表达。
 
 ### 📝 Blog
 
