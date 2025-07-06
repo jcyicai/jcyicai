@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-每个恋爱中的人都是诗人。
+男孩最好的朋友是他的母亲。
 
 ### 📝 Blog
 
