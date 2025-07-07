@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-男孩最好的朋友是他的母亲。
+优势不在于跑得快，而在于起身早。
 
 ### 📝 Blog
 
