@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-忘掉所有"不可能"的借口，坚持那一个"可能"的理由。
+面向阳光，阴影自褪。
 
 ### 📝 Blog
 
