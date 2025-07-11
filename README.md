@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-一人即某人的全世界。
+没有努力，天份不代表什么。
 
 ### 📝 Blog
 
