@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-愿原力与你同在。——《星球大战》
+爱助生长，喜欢只懂索取。
 
 ### 📝 Blog
 
