@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-爱助生长，喜欢只懂索取。
+时间愈心伤，亦平身创。
 
 ### 📝 Blog
 
