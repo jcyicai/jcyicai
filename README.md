@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-时间愈心伤，亦平身创。
+成功皆筑于经年败绩。
 
 ### 📝 Blog
 
