@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-成功皆筑于经年败绩。
+人不可貌相，海不可斗量。
 
 ### 📝 Blog
 
