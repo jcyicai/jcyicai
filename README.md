@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-习惯成自然。
+时光如逝水，岁月不待人。
 
 ### 📝 Blog
 
