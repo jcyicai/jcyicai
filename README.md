@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-强者才懂斗争，弱者生来被征服。
+成功的秘诀在于忠于目标。
 
 ### 📝 Blog
 
