@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-成功的秘诀在于忠于目标。
+通往值得去的地方，从无捷径。
 
 ### 📝 Blog
 
