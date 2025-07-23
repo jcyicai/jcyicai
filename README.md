@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-通往值得去的地方，从无捷径。
+完美虽不可达，追求它却能成就卓越。
 
 ### 📝 Blog
 
