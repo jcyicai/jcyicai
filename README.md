@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-完美虽不可达，追求它却能成就卓越。
+伤痛铸坚强，眼泪淬勇敢，心碎炼智慧。
 
 ### 📝 Blog
 
