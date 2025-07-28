@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-它是我最好的朋友，总是很快乐，从不问问题。
+捱过黑暗，才能看见光明。
 
 ### 📝 Blog
 
