@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-捱过黑暗，才能看见光明。
+奋斗未来，莫悔往昔。
 
 ### 📝 Blog
 
