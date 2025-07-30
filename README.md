@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-奋斗未来，莫悔往昔。
+你举世无双，无人可以替代。
 
 ### 📝 Blog
 
