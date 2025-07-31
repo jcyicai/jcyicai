@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你举世无双，无人可以替代。
+你穿越风暴的无声行进，在大地写下和平。
 
 ### 📝 Blog
 
