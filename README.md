@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你穿越风暴的无声行进，在大地写下和平。
+你一开口我就沦陷了；那是爱情的初见。—《老友记》
 
 ### 📝 Blog
 
