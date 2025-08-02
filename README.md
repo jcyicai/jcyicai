@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你一开口我就沦陷了；那是爱情的初见。—《老友记》
+真相在外面，它在等待。 —《X档案》
 
 ### 📝 Blog
 
