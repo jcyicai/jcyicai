@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-教养胜过天性。
+一燕不成夏（一花独放不是春）。
 
 ### 📝 Blog
 
