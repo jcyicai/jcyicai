@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-勇气非无畏，而是守护所爱的意志。
+勤劳之人不受穷。
 
 ### 📝 Blog
 
