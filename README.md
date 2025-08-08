@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-勤劳之人不受穷。
+万物皆有美，只是并非所有人都能看到。 — 孔子
 
 ### 📝 Blog
 
