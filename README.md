@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-万物皆有美，只是并非所有人都能看到。 — 孔子
+爱是唯一的现实。— 詹姆斯·马修·巴里，《彼得潘》
 
 ### 📝 Blog
 
