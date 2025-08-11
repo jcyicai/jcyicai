@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-希望是美好的，也许是人间至善。
+酒后吐真言。
 
 ### 📝 Blog
 
