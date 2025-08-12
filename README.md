@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-酒后吐真言。
+风水轮流转。
 
 ### 📝 Blog
 
