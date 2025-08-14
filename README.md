@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-经常用腿，健步如飞。
+美德常青。
 
 ### 📝 Blog
 
