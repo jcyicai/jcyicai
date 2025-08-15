@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-美德常青。
+爱与被爱是感受到两边的阳光。 — 大卫·维斯科特
 
 ### 📝 Blog
 
