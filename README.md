@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-学生超过老师，后人胜过前人。
+浪费时间就是掠夺自己。
 
 ### 📝 Blog
 
