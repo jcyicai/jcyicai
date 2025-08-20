@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-浪费时间就是掠夺自己。
+艰难的道路经常通往高处。
 
 ### 📝 Blog
 
