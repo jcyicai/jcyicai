@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-艰难的道路经常通往高处。
+说的是一辈子！差一年，一个月，一天，一个时辰...都不算一辈子！
 
 ### 📝 Blog
 
