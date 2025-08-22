@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-说的是一辈子！差一年，一个月，一天，一个时辰...都不算一辈子！
+我才是那个敲门的人，不是你。 —《绝命毒师》
 
 ### 📝 Blog
 
