@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我才是那个敲门的人，不是你。 —《绝命毒师》
+寒冬将至，我们必须做好准备。—《权力的游戏》
 
 ### 📝 Blog
 
