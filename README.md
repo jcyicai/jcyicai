@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-攀高者，必精于俯身。
+活在当下，重要的事今天就做！
 
 ### 📝 Blog
 
