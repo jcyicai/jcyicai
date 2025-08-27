@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-活在当下，重要的事今天就做！
+假面之下藏信念，凡兵利器不可侵。
 
 ### 📝 Blog
 
