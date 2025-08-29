@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-鹊桥相会，一年一度，却是一生一世。
+对明天实现的唯一限制是我们今天的怀疑。 —《白宫风云》
 
 ### 📝 Blog
 
