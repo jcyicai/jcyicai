@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-对明天实现的唯一限制是我们今天的怀疑。 —《白宫风云》
+把伤口变成智慧。 — 奥普拉·温弗瑞
 
 ### 📝 Blog
 
