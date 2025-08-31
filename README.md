@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-把伤口变成智慧。 — 奥普拉·温弗瑞
+书籍是永不过期的护照。
 
 ### 📝 Blog
 
