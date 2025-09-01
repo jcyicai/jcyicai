@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-书籍是永不过期的护照。
+希望是那个轻声说“再试一次”的声音。
 
 ### 📝 Blog
 
