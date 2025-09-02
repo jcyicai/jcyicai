@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-希望是那个轻声说“再试一次”的声音。
+阅兵场上，每一步都回响着国家的心跳。
 
 ### 📝 Blog
 
