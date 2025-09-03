@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-阅兵场上，每一步都回响着国家的心跳。
+每天夸自己一句。
 
 ### 📝 Blog
 
