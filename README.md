@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-在AI时代，好奇心仍是我们的超能力。
+生活是一场美丽的挣扎。
 
 ### 📝 Blog
 
