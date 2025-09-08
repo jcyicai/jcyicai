@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-耐心是无声的力量。
+困难的中心蕴藏着机遇
 
 ### 📝 Blog
 
