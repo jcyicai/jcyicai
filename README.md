@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-困难的中心蕴藏着机遇
+教师播下的好奇之种，会永远盛开。
 
 ### 📝 Blog
 
