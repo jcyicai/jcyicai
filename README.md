@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-教师播下的好奇之种，会永远盛开。
+偏见是无知的产物。
 
 ### 📝 Blog
 
