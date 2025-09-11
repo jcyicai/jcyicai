@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-偏见是无知的产物。
+压力是罗盘，而非牢笼。
 
 ### 📝 Blog
 
