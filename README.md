@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我本可以成为强者。
+我们背后和面前的事情都是小事。
 
 ### 📝 Blog
 
