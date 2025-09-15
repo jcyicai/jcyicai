@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-Love wins always.  
+面对任何风暴都要坚持。
 
 ### 📝 Blog
 
