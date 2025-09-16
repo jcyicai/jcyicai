@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-面对任何风暴都要坚持。
+每天重新选择快乐。
 
 ### 📝 Blog
 
