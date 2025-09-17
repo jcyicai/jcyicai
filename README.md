@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-每天重新选择快乐。
+时间会回答所有问题。
 
 ### 📝 Blog
 
