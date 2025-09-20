@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-不是所有徘徊的人都迷失了。
+你必须成为你希望在世界上看到的改变。
 
 ### 📝 Blog
 
