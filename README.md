@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你必须成为你希望在世界上看到的改变。
+所有动物生而平等，但有些更平等。
 
 ### 📝 Blog
 
