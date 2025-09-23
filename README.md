@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-思念让心不分离。 
+日日为自己执笔。
 
 ### 📝 Blog
 
