@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-真正的朋友映照你的灵魂。
+种子在寂静的泥土里生长。  
 
 ### 📝 Blog
 
