@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-棒球里不许哭泣！
+失败只是重新开始的机会，这次更加聪明。
 
 ### 📝 Blog
 
