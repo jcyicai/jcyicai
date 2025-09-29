@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-这有点像个有趣的故事。
+把小事做到伟大。  
 
 ### 📝 Blog
 
