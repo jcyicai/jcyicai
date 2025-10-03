@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-一个拥抱胜过千言万语。
+成功始于自律。
 
 ### 📝 Blog
 
