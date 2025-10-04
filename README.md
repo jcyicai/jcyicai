@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-成功始于自律。
+尊重是赢得的，不是给予的。
 
 ### 📝 Blog
 
