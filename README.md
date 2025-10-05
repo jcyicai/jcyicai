@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-尊重是赢得的，不是给予的。
+满月让千里心相连。
 
 ### 📝 Blog
 
