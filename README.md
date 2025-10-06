@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-满月让千里心相连。
+爱被分享时才会成长。
 
 ### 📝 Blog
 
