@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-爱被分享时才会成长。
+秋以寒露亲吻大地。
 
 ### 📝 Blog
 
