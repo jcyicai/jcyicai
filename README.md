@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-视角改变一切。
+改变始于内在。
 
 ### 📝 Blog
 
