@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-改变始于内在。
+珍惜与家人在一起的时光，因为它们稍纵即逝。
 
 ### 📝 Blog
 
