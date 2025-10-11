@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-珍惜与家人在一起的时光，因为它们稍纵即逝。
+自由从未被赋予；它是赢得的。
 
 ### 📝 Blog
 
