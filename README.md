@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-小习惯带来大改变。
+学习永远不会使头脑疲惫。
 
 ### 📝 Blog
 
