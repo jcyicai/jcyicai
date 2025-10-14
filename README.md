@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-学习永远不会使头脑疲惫。
+分享前先思考。
 
 ### 📝 Blog
 
