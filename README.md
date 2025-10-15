@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-分享前先思考。
+小步也是向前。
 
 ### 📝 Blog
 
