@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-让今天为明天增值。
+从未犯错的人从未尝试过任何新事物。
 
 ### 📝 Blog
 
