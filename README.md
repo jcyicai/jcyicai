@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-每个困难中都蕴藏着机会。
+生物多样性是地球的安全网。
 
 ### 📝 Blog
 
