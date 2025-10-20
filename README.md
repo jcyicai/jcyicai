@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-生物多样性是地球的安全网。
+整洁的空间让头脑清晰。
 
 ### 📝 Blog
 
