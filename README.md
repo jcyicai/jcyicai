@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-整洁的空间让头脑清晰。
+未来由我们一起建造。
 
 ### 📝 Blog
 
