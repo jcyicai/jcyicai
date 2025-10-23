@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-霜降拉开冬天的序幕
+穿越困境，得以成长。
 
 ### 📝 Blog
 
