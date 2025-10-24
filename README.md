@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-穿越困境，得以成长。
+思想决定一切。
 
 ### 📝 Blog
 
