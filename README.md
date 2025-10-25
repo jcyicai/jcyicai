@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-思想决定一切。
+改变你的想法，你就改变了你的世界。
 
 ### 📝 Blog
 
