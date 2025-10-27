@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-生活的10%是发生在我们身上的事，而90%是我们对它的反应。
+风暴后总有光。
 
 ### 📝 Blog
 
