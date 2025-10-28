@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-风暴后总有光。
+登高望远，心也年轻。
 
 ### 📝 Blog
 
