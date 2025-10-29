@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-登高望远，心也年轻。
+改变始于舒适边缘。
 
 ### 📝 Blog
 
