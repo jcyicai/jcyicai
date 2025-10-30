@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-改变始于舒适边缘。
+ 十月以魔法和糖果收尾。
 
 ### 📝 Blog
 
