@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
- 十月以魔法和糖果收尾。
+因自我怀疑而失去的梦想比因失败而失去的更多。
 
 ### 📝 Blog
 
