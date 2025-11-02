@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-人生苦短，活出精彩。
+幸福取决于你的心态。
 
 ### 📝 Blog
 
