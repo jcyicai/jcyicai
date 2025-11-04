@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-为追梦的每一步而自豪。
+生命最珍贵的馈赠源于辛勤耕耘。
 
 ### 📝 Blog
 
