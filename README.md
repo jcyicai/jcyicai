@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-相信你的选择。追随你的心意走向你的命运。
+冬日暖身养心，静候春来。
 
 ### 📝 Blog
 
