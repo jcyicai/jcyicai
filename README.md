@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-最大的风险是不冒风险。
+别以貌取人。
 
 ### 📝 Blog
 
