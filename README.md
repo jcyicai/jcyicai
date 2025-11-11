@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-梦想遭遇阻碍，但命运就在前方。
+改变或坚守。由你选择。
 
 ### 📝 Blog
 
