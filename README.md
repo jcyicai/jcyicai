@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-悲伤生喜悦，如枯花绽新蕾。
+时间是一个人最宝贵的财富。
 
 ### 📝 Blog
 
