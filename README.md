@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-时间是一个人最宝贵的财富。
+梦想是我们性格的基石。
 
 ### 📝 Blog
 
