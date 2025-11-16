@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-梦想是我们性格的基石。
+在清凉的空气中，每一次呼吸都呵出一小朵云。
 
 ### 📝 Blog
 
