@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-在清凉的空气中，每一次呼吸都呵出一小朵云。
+床上多加一条毯子，感觉就像一种巨大的享受。
 
 ### 📝 Blog
 
