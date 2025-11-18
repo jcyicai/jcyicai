@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-床上多加一条毯子，感觉就像一种巨大的享受。
+这是在窗边读一本好书的完美时节。
 
 ### 📝 Blog
 
