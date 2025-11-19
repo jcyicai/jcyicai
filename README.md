@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-这是在窗边读一本好书的完美时节。
+让我们为生活中简单的快乐而感恩。
 
 ### 📝 Blog
 
