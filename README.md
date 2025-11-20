@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-让我们为生活中简单的快乐而感恩。
+人人皆独特。
 
 ### 📝 Blog
 
