@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-人人皆独特。
+没有一片雪花会落在错误的地方。
 
 ### 📝 Blog
 
