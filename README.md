@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-每一天都是秋天故事里崭新的一页。
+让我们在简单宁静的时刻中寻找快乐。
 
 ### 📝 Blog
 
