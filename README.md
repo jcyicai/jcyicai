@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-世界正安静下来，准备它的冬日休眠。
+在放下之中亦有美感。
 
 ### 📝 Blog
 
