@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-在放下之中亦有美感。
+你今天所做的一切，可以改善你所有的明天。
 
 ### 📝 Blog
 
