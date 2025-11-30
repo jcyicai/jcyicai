@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-智者做自己的决定。
+十二月，宜珍惜，宜感恩，宜奔赴更美好的未来。
 
 ### 📝 Blog
 
