@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-今日微风，正好散步。
+一步一印，自成风景。
 
 ### 📝 Blog
 
