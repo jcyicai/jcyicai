@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-一步一印，自成风景。
+冬日有光，心中有梦。
 
 ### 📝 Blog
 
