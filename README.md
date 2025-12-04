@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-冬日有光，心中有梦。
+冬天总是悄然来临，而寒意却骤然而至。
 
 ### 📝 Blog
 
