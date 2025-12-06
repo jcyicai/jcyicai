@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-在寒风中行走的人，心中自有一团不灭的火。
+围炉煮雪，烹煮一段慢下来的时光。
 
 ### 📝 Blog
 
