@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-围炉煮雪，烹煮一段慢下来的时光。
+在寂静中，长出自己的根。
 
 ### 📝 Blog
 
