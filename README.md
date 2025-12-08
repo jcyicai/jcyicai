@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-在寂静中，长出自己的根。
+窗明几净，便是清欢。
 
 ### 📝 Blog
 
