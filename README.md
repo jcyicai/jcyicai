@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-不必追光，你本就能发光。
+即使平凡笨拙，不放弃本身就是闪光点。
 
 ### 📝 Blog
 
