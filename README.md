@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-即使平凡笨拙，不放弃本身就是闪光点。
+每一条路都是独特的风景，每一个人都是唯一的存在。
 
 ### 📝 Blog
 
