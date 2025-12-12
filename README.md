@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-每一条路都是独特的风景，每一个人都是唯一的存在。
+物质之外，更重要的是一个人的精神与见解。
 
 ### 📝 Blog
 
