@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-物质之外，更重要的是一个人的精神与见解。
+愿这个冬天的每一场雪，都是为了铺垫世界的洁白。
 
 ### 📝 Blog
 
