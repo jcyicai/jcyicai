@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-愿这个冬天的每一场雪，都是为了铺垫世界的洁白。
+在孤独中，遇见完整的我。
 
 ### 📝 Blog
 
