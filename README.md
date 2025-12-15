@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-在孤独中，遇见完整的我。
+爱是看见，也是空间。
 
 ### 📝 Blog
 
