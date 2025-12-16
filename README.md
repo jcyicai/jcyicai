@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-爱是看见，也是空间。
+成长，是一场温柔的自我叛变。
 
 ### 📝 Blog
 
