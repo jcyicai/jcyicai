@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-成长，是一场温柔的自我叛变。
+过往已落笔，未来正铺陈。
 
 ### 📝 Blog
 
