@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-过往已落笔，未来正铺陈。
+冬日的暖阳，比任何季节都更让人珍惜。
 
 ### 📝 Blog
 
