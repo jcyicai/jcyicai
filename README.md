@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-听风起，看雪落，万物自有其时。
+夜从此渐短，光从此渐长。
 
 ### 📝 Blog
 
