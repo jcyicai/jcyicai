@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-夜从此渐短，光从此渐长。
+于荒原中，踏出自己的路。
 
 ### 📝 Blog
 
