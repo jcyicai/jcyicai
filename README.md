@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-琐碎日常，亦有微光。
+懂的人自会懂，其余皆是风景。
 
 ### 📝 Blog
 
