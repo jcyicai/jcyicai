@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-懂的人自会懂，其余皆是风景。
+愿你攒足勇气，迎接新的太阳。
 
 ### 📝 Blog
 
