@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-愿你攒足勇气，迎接新的太阳。
+越是寒冷，越能体会温暖的重量。
 
 ### 📝 Blog
 
