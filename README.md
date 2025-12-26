@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-越是寒冷，越能体会温暖的重量。
+生活是自己的真切感受，不必困于他人眼光。
 
 ### 📝 Blog
 
