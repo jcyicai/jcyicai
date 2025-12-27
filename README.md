@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-生活是自己的真切感受，不必困于他人眼光。
+新的开始的最佳时机就是现在。
 
 ### 📝 Blog
 
