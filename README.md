@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-新的开始的最佳时机就是现在。
+慢品人间，静观其变。
 
 ### 📝 Blog
 
