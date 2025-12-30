@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-昨日之影，垫高今日之我。
+给这一年一个温柔的拥抱，说声再见。
 
 ### 📝 Blog
 
