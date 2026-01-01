@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-岁月温柔，许你一个可期的开头。
+步履所向，自有光亮。
 
 ### 📝 Blog
 
