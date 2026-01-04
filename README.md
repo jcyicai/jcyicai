@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-前路漫漫，不萦一时彷徨。
+冷至深处，暖意正在土壤里苏醒。
 
 ### 📝 Blog
 
