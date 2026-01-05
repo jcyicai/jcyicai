@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-冷至深处，暖意正在土壤里苏醒。
+生活的真谛不在于选择，而在于热爱。
 
 ### 📝 Blog
 
