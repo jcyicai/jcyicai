@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-生活的真谛不在于选择，而在于热爱。
+温柔是我的力量，锋利是我的边界。
 
 ### 📝 Blog
 
