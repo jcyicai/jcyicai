@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-温柔是我的力量，锋利是我的边界。
+向阳而立，阴影自会落在身后。
 
 ### 📝 Blog
 
