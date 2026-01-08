@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-向阳而立，阴影自会落在身后。
+期待少一分，惊喜多十分。
 
 ### 📝 Blog
 
