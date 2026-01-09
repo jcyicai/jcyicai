@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-期待少一分，惊喜多十分。
+当“最好”永无止境，努力便沦为负累。
 
 ### 📝 Blog
 
