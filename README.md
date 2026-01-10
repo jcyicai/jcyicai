@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-当“最好”永无止境，努力便沦为负累。
+晨光漫上窗棂，今日风暖，天色晴和。
 
 ### 📝 Blog
 
