@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-晨光漫上窗棂，今日风暖，天色晴和。
+于复杂中，守护简单的内核。
 
 ### 📝 Blog
 
