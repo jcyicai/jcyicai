@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-于复杂中，守护简单的内核。
+今日无事，便是宇宙的馈赠。
 
 ### 📝 Blog
 
