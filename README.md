@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-今日无事，便是宇宙的馈赠。
+幸福是许多微小的“不为什么”。
 
 ### 📝 Blog
 
