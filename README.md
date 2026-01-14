@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-幸福是许多微小的“不为什么”。
+将昨日，叠进行囊。
 
 ### 📝 Blog
 
