@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-在物质的世界里，构建精神的高地。
+成为你想成为的人，而非他人眼中的你。
 
 ### 📝 Blog
 
