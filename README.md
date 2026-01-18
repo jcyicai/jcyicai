@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-和所有声音握手，但只与自己的心签约。
+于内里筑一座无扰的城。
 
 ### 📝 Blog
 
