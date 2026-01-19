@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-于内里筑一座无扰的城。
+冬意倾尽所有，为春的登场清场。
 
 ### 📝 Blog
 
