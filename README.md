@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-冬意倾尽所有，为春的登场清场。
+真诚有尺，付出有度。
 
 ### 📝 Blog
 
