@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-真诚有尺，付出有度。
+为新的篇章，再度倾注热爱的底色。
 
 ### 📝 Blog
 
