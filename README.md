@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-冬日的阳光是限量版，记得多出门晒晒。
+希望是前行的光，感恩是心中的锚。
 
 ### 📝 Blog
 
