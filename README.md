@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-希望是前行的光，感恩是心中的锚。
+真正的自由，是为灵魂选择它的重量。
 
 ### 📝 Blog
 
