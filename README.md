@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-真正的自由，是为灵魂选择它的重量。
+安顿好自己，是唯一的要事。
 
 ### 📝 Blog
 
