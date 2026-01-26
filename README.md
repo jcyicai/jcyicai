@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-安顿好自己，是唯一的要事。
+向深处探寻，答案自现。
 
 ### 📝 Blog
 
