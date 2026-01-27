@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-向深处探寻，答案自现。
+水净沙明，心清事晰。
 
 ### 📝 Blog
 
