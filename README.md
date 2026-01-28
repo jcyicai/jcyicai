@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-水净沙明，心清事晰。
+七分示人，三分藏己。
 
 ### 📝 Blog
 
