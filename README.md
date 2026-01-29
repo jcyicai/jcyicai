@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-七分示人，三分藏己。
+把今天的烦恼塞进枕头，明天自会有新的脚步。
 
 ### 📝 Blog
 
