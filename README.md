@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-感谢努力的自己，也原谅不完美的过往。
+一年的第二章，以安静而平稳的呼吸开启。
 
 ### 📝 Blog
 
