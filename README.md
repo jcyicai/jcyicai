@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-一年的第二章，以安静而平稳的呼吸开启。
+寒风轻推着前进的坚定步伐。
 
 ### 📝 Blog
 
