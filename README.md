@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-寒风轻推着前进的坚定步伐。
+答案在风中，但你必须亲手捕捉。
 
 ### 📝 Blog
 
