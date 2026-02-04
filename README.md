@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-春天踮脚而来，融化了冰的边缘。
+足迹印雪，留下短暂却深的路。
 
 ### 📝 Blog
 
