@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-暖意从一杯热饮中慢慢苏醒。
+书页间流淌着冬日安静的智慧。
 
 ### 📝 Blog
 
