@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-书页间流淌着冬日安静的智慧。
+雪让世间归于静谧与崭新。
 
 ### 📝 Blog
 
