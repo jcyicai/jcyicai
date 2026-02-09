@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-星空低语，梦想在夜色里扎根。
+每一缕晨曦都赠予空白的画布。
 
 ### 📝 Blog
 
