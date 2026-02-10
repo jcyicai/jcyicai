@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-每一缕晨曦都赠予空白的画布。
+寒风刺骨，暖心不灭。继续前行。
 
 ### 📝 Blog
 
