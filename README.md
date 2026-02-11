@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-寒风刺骨，暖心不灭。继续前行。
+呵出的白气，在空中写下短暂的诗。
 
 ### 📝 Blog
 
