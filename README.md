@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-呵出的白气，在空中写下短暂的诗。
+远山裹着雪袍，静候一封春的来信。
 
 ### 📝 Blog
 
