@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-今天学习一件新事物。
+静谧中，反思与希望悄然交织。
 
 ### 📝 Blog
 
