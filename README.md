@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-静谧中，反思与希望悄然交织。
+厨房的蒸汽晕染了窗，在寒冷的玻璃上画下温暖。
 
 ### 📝 Blog
 
