@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-厨房的蒸汽晕染了窗，在寒冷的玻璃上画下温暖。
+新年伊始，万象更新，愿你满怀希望。
 
 ### 📝 Blog
 
