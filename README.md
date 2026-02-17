@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-新年伊始，万象更新，愿你满怀希望。
+听——屋顶在唱一首不同的、更温柔的歌。
 
 ### 📝 Blog
 
