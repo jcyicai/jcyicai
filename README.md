@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-听——屋顶在唱一首不同的、更温柔的歌。
+阳光照在雪上，是自然的艺术。
 
 ### 📝 Blog
 
