@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-阳光照在雪上，是自然的艺术。
+雪花翩跹，天空写下无声诗行。
 
 ### 📝 Blog
 
