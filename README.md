@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-雪花翩跹，天空写下无声诗行。
+一句善言足以融化寒冬。
 
 ### 📝 Blog
 
