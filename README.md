@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-一句善言足以融化寒冬。
+即便是短暂的旅程，亦可熠熠生辉。
 
 ### 📝 Blog
 
