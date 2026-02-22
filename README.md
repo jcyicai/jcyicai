@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-即便是短暂的旅程，亦可熠熠生辉。
+在最寒冷的日子里，绽放你最耀眼的光芒。
 
 ### 📝 Blog
 
