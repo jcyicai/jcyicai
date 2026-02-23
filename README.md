@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-在最寒冷的日子里，绽放你最耀眼的光芒。
+如同积雪下的种子，怀着希望静候。
 
 ### 📝 Blog
 
