@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-如同积雪下的种子，怀着希望静候。
+冰会融化，为水流让路。
 
 ### 📝 Blog
 
