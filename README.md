@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我们内在的成就会改变外在的现实。
+抬头望去，只见冬日晴空万里。
 
 ### 📝 Blog
 
