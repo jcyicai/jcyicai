@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-抬头望去，只见冬日晴空万里。
+打开门，让新的光芒进来。
 
 ### 📝 Blog
 
