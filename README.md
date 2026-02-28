@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-打开门，让新的光芒进来。
+深植根基，为春日绽放蓄力。
 
 ### 📝 Blog
 
