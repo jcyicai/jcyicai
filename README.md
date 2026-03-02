@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-蜜蜂哼唱着通往隐秘甜美的地图。
+点亮一个愿望，让它升起。
 
 ### 📝 Blog
 
