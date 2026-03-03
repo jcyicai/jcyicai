@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-点亮一个愿望，让它升起。
+水洼倒映出更蓝、更高的天空。
 
 ### 📝 Blog
 
