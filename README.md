@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-水洼倒映出更蓝、更高的天空。
+春天的能量开始嗡鸣。
 
 ### 📝 Blog
 
