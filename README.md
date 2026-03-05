@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-春天的能量开始嗡鸣。
+嫩芽顶破褐色的枝桠，急着开口说话。
 
 ### 📝 Blog
 
