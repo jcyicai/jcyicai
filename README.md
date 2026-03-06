@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-嫩芽顶破褐色的枝桠，急着开口说话。
+炉火噼啪，陪伴深夜里独思者。
 
 ### 📝 Blog
 
