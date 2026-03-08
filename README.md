@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-致敬她的旅程，庆祝她的光芒。
+绿色在一夜之间浮现，羞涩而坚定。
 
 ### 📝 Blog
 
