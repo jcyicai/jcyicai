@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-绿色在一夜之间浮现，羞涩而坚定。
+老树披上了一层新苔藓的外衣。
 
 ### 📝 Blog
 
