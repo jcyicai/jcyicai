@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-老树披上了一层新苔藓的外衣。
+铁锹翻过的地方，新叶正低语。
 
 ### 📝 Blog
 
