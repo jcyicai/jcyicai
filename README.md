@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-铁锹翻过的地方，新叶正低语。
+星空比往常更低，垂向未眠人的肩头。
 
 ### 📝 Blog
 
