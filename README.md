@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-心如静水，无波不映。
+你自身的光芒照亮前路。
 
 ### 📝 Blog
 
