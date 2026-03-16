@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-无人注意时，草长高了一寸。
+温暖的分享终将回馈于你。
 
 ### 📝 Blog
 
