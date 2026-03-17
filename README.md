@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-温暖的分享终将回馈于你。
+生命在每道缝隙和角落醒来。
 
 ### 📝 Blog
 
