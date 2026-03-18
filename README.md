@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-生命在每道缝隙和角落醒来。
+蒲公英在草坪上写下一个个小太阳。
 
 ### 📝 Blog
 
