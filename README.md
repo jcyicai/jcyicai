@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-蒲公英在草坪上写下一个个小太阳。
+白昼与黑夜握手，达成完美的平衡。
 
 ### 📝 Blog
 
