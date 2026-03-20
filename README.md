@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-白昼与黑夜握手，达成完美的平衡。
+带着细心和微笑规划你的路途。
 
 ### 📝 Blog
 
