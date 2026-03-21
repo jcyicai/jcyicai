@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-带着细心和微笑规划你的路途。
+樱花在盛开前先红了脸颊。
 
 ### 📝 Blog
 
