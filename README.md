@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-樱花在盛开前先红了脸颊。
+结束为新开始腾出空间。
 
 ### 📝 Blog
 
