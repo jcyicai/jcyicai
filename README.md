@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-结束为新开始腾出空间。
+过去的经验是给明天的礼物。
 
 ### 📝 Blog
 
