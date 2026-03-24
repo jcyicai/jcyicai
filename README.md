@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-过去的经验是给明天的礼物。
+每一天都为你的故事增添力量。
 
 ### 📝 Blog
 
