@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-每一天都为你的故事增添力量。
+你每天都可以绘制一幅新画面。
 
 ### 📝 Blog
 
