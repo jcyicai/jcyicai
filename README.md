@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你每天都可以绘制一幅新画面。
+未来不来，我便向未来走去。
 
 ### 📝 Blog
 
