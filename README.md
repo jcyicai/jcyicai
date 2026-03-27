@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-未来不来，我便向未来走去。
+白色的花瓣飘落如雪，却更温柔。
 
 ### 📝 Blog
 
