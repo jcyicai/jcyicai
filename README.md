@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-白色的花瓣飘落如雪，却更温柔。
+温润的雨在窗上写诗。
 
 ### 📝 Blog
 
