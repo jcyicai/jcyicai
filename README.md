@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-温润的雨在窗上写诗。
+雨用银线把大地细细缝起。
 
 ### 📝 Blog
 
