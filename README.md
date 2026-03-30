@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-雨用银线把大地细细缝起。
+三月将尽，口袋里装着一个承诺。
 
 ### 📝 Blog
 
