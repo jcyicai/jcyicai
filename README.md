@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-三月将尽，口袋里装着一个承诺。
+黎明不以喧嚣降临，而以静默的光绽放。
 
 ### 📝 Blog
 
