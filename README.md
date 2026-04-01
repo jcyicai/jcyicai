@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-黎明不以喧嚣降临，而以静默的光绽放。
+根在黑暗中深扎，树才能信任光明。
 
 ### 📝 Blog
 
