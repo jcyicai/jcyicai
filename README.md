@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-根在黑暗中深扎，树才能信任光明。
+河流不急于赶路，它只是知道海的方向。
 
 ### 📝 Blog
 
