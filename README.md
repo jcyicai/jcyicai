@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-河流不急于赶路，它只是知道海的方向。
+每一片落花，都为果实让出未来的位置。
 
 ### 📝 Blog
 
