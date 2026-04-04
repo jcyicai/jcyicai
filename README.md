@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-每一片落花，都为果实让出未来的位置。
+雨洗昨日泪，新绿悄然生。
 
 ### 📝 Blog
 
