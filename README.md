@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-雨洗昨日泪，新绿悄然生。
+路是走出来的而不是等待征兆。
 
 ### 📝 Blog
 
