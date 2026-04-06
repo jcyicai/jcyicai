@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-路是走出来的而不是等待征兆。
+当冬天还在肆虐，种子已经相信春天。
 
 ### 📝 Blog
 
