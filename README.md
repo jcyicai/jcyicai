@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-当冬天还在肆虐，种子已经相信春天。
+海浪不畏惧海岸，它把终结拥作新的开端。
 
 ### 📝 Blog
 
