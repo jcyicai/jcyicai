@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-海浪不畏惧海岸，它把终结拥作新的开端。
+山峦岿然不动，却教会了云朵如何舞蹈。
 
 ### 📝 Blog
 
