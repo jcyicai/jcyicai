@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-山峦岿然不动，却教会了云朵如何舞蹈。
+你的心跳，是那场独属于你的征程的战鼓。
 
 ### 📝 Blog
 
