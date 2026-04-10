@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你的心跳，是那场独属于你的征程的战鼓。
+永远向前，绝不后退。
 
 ### 📝 Blog
 
