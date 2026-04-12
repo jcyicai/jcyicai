@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-人生苦短，趁牙齿未落微笑。
+你的潜力是一个宇宙，别满足于做一颗孤星。
 
 ### 📝 Blog
 
