@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你的潜力是一个宇宙，别满足于做一颗孤星。
+大地上的每道伤痕，最终都成了山谷或河流。
 
 ### 📝 Blog
 
