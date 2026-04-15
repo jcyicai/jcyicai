@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-希望是那根羽毛，平衡着今日的顽石。
+你的思绪是园丁，只去照料那些花朵吧。
 
 ### 📝 Blog
 
