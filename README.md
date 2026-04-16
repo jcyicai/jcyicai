@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你的思绪是园丁，只去照料那些花朵吧。
+雨滴从不竞争，它们终将一起抵达大地。
 
 ### 📝 Blog
 
