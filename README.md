@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你的内心深处，有一片足以容纳所有风暴的宁静。
+竹子向天生长，靠的是随风俯身。
 
 ### 📝 Blog
 
