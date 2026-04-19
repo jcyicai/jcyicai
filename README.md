@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-竹子向天生长，靠的是随风俯身。
+谷雨唤醒你心中沉睡的种子。
 
 ### 📝 Blog
 
