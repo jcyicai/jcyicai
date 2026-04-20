@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-谷雨唤醒你心中沉睡的种子。
+月亮不必圆满，也能照亮前路。
 
 ### 📝 Blog
 
