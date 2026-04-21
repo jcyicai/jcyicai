@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-月亮不必圆满，也能照亮前路。
+一句善意的话，是带着温暖飞回的回旋镖。
 
 ### 📝 Blog
 
