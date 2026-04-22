@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-一句善意的话，是带着温暖飞回的回旋镖。
+蝴蝶的美丽，诞生于毛虫的耐心。
 
 ### 📝 Blog
 
