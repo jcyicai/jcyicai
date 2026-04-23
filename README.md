@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-蝴蝶的美丽，诞生于毛虫的耐心。
+每一次日落，都是对我们尚未谋面的黎明的承诺。
 
 ### 📝 Blog
 
