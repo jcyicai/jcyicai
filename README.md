@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-每一次日落，都是对我们尚未谋面的黎明的承诺。
+希望与爱让每个挑战变得更容易。
 
 ### 📝 Blog
 
