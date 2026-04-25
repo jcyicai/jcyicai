@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-希望与爱让每个挑战变得更容易。
+你是那片你尚未见过的天空的画师。
 
 ### 📝 Blog
 
