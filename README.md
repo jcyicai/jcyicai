@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-微小的善行，是为迷航的船只引路的星星。
+成长不是直线，而是盘旋上升的螺旋。
 
 ### 📝 Blog
 
