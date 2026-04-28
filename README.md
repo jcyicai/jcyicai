@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-成长不是直线，而是盘旋上升的螺旋。
+最美妙的旋律，来自被精心雕琢的乐器。
 
 ### 📝 Blog
 
