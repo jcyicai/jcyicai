@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-最美妙的旋律，来自被精心雕琢的乐器。
+让你的错误，成为未来花园的养料。
 
 ### 📝 Blog
 
