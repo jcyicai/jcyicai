@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-让你的错误，成为未来花园的养料。
+所有提升人类的劳动都具有尊严和重要性。
 
 ### 📝 Blog
 
