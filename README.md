@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-所有提升人类的劳动都具有尊严和重要性。
+阳光来了，我说，一切都好。
 
 ### 📝 Blog
 
