@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-云层散开时，天空露出淡蓝的底色。
+青年如晨光，充满无限可能。
 
 ### 📝 Blog
 
