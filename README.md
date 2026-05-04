@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-青年如晨光，充满无限可能。
+凉风偶尔到访，与春天告别。
 
 ### 📝 Blog
 
