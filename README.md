@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-凉风偶尔到访，与春天告别。
+雨后泥土的气息让人心安。
 
 ### 📝 Blog
 
