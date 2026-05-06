@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-雨后泥土的气息让人心安。
+田埂上的野花，悄悄铺成彩毯。
 
 ### 📝 Blog
 
