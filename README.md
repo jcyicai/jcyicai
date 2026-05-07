@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-田埂上的野花，悄悄铺成彩毯。
+你今天唯一能做的事就是微笑。
 
 ### 📝 Blog
 
