@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你可以，你应该，若你勇敢，你会做到。
+母亲的爱像五月的风，温柔而绵长。
 
 ### 📝 Blog
 
