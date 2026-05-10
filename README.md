@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-母亲的爱像五月的风，温柔而绵长。
+日历翻动，时间静静流淌向前。
 
 ### 📝 Blog
 
