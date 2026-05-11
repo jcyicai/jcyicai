@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-日历翻动，时间静静流淌向前。
+微风送来槐花香，甜了归途。
 
 ### 📝 Blog
 
