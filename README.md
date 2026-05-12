@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-微风送来槐花香，甜了归途。
+雨水轻轻敲着窗，像在说悄悄话。
 
 ### 📝 Blog
 
