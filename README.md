@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-雨水轻轻敲着窗，像在说悄悄话。
+麦田在风中泛起绿色的波浪。
 
 ### 📝 Blog
 
