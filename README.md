@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-蔷薇爬满篱笆，开出一朵朵粉色的梦。
+我找到了10,000种行不通的方法。
 
 ### 📝 Blog
 
