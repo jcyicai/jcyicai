@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我找到了10,000种行不通的方法。
+树荫下，蚂蚁们忙着搬运夏天。
 
 ### 📝 Blog
 
