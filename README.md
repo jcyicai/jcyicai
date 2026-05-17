@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-树荫下，蚂蚁们忙着搬运夏天。
+樱桃开始泛红，像少女害羞的脸颊。
 
 ### 📝 Blog
 
