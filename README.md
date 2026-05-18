@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-樱桃开始泛红，像少女害羞的脸颊。
+午后阳光慵懒，适合读半本书。
 
 ### 📝 Blog
 
