@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-午后阳光慵懒，适合读半本书。
+日光拉得更长，把墙壁染成金色。
 
 ### 📝 Blog
 
