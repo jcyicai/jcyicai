@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-日光拉得更长，把墙壁染成金色。
+麦粒渐满，雨水增多。
 
 ### 📝 Blog
 
