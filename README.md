@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-麦粒渐满，雨水增多。
+蜻蜓立在荷尖上，一动不动像个哨兵。
 
 ### 📝 Blog
 
