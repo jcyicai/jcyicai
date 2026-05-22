@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-蜻蜓立在荷尖上，一动不动像个哨兵。
+我们每个人都超越了自己最糟的错误。
 
 ### 📝 Blog
 
