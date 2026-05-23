@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我们每个人都超越了自己最糟的错误。
+雨后彩虹像一座桥，连接天空和大地。
 
 ### 📝 Blog
 
