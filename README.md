@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-雨后彩虹像一座桥，连接天空和大地。
+云如思绪，轻轻缓缓地飘。
 
 ### 📝 Blog
 
