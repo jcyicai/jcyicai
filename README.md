@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-云如思绪，轻轻缓缓地飘。
+西瓜切开的声音，是夏天最动听的问候。
 
 ### 📝 Blog
 
