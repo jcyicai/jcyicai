@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-西瓜切开的声音，是夏天最动听的问候。
+风捎来更柔软、更青翠的气息。
 
 ### 📝 Blog
 
