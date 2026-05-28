@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-池塘边，孩子们光着脚丫踩水花。
+栀子花开了，整个院子都是白色的香气。
 
 ### 📝 Blog
 
