@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-栀子花开了，整个院子都是白色的香气。
+减轻他人负担的人绝非无用。
 
 ### 📝 Blog
 
