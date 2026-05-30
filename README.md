@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-减轻他人负担的人绝非无用。
+光线流连着，不舍得说再见。
 
 ### 📝 Blog
 
