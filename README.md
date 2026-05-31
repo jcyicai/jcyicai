@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-光线流连着，不舍得说再见。
+今天不长大，做一天快乐的小孩。
 
 ### 📝 Blog
 
