@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-今天不长大，做一天快乐的小孩。
+阳光在曾是阴影的地方积成了水洼。
 
 ### 📝 Blog
 
