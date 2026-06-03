@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-阳光在曾是阴影的地方积成了水洼。
+钟摆摇晃，数着时间柔软的骨节。
 
 ### 📝 Blog
 
