@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-钟摆摇晃，数着时间柔软的骨节。
+未读完的书页间，栖居着寂静的走廊。
 
 ### 📝 Blog
 
