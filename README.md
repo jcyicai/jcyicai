@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-麦芒刺破晨光，农人弯腰拾起金黄。
+相信时间。美好的事物需要慢慢生长。
 
 ### 📝 Blog
 
