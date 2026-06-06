@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-相信时间。美好的事物需要慢慢生长。
+你比自己想象的更强大。
 
 ### 📝 Blog
 
