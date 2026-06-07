@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你比自己想象的更强大。
+去做吧，结果会给你答案。
 
 ### 📝 Blog
 
