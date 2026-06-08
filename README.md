@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-去做吧，结果会给你答案。
+记忆有时会短路。
 
 ### 📝 Blog
 
