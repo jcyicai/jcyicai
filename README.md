@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-记忆有时会短路。
+影子是光做的素描。
 
 ### 📝 Blog
 
