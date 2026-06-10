@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-影子是光做的素描。
+门合上了刚才的故事。
 
 ### 📝 Blog
 
