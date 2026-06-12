@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-门合上了刚才的故事。
+青柠的气味切开沉闷。
 
 ### 📝 Blog
 
