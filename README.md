@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你不射门，就永远得不了分。
+橡皮擦消耗着自己。
 
 ### 📝 Blog
 
