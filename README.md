@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-橡皮擦消耗着自己。
+微笑是最短的桥。
 
 ### 📝 Blog
 
