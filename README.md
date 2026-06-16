@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-不争一时之响，只求余音绵长。
+乌云镶着金边，是光在努力穿透。
 
 ### 📝 Blog
 
