@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-微笑是最短的桥。
+不争一时之响，只求余音绵长。
 
 ### 📝 Blog
 
