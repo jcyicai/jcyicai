@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-乌云镶着金边，是光在努力穿透。
+一个微笑，可以点燃另一颗心。
 
 ### 📝 Blog
 
