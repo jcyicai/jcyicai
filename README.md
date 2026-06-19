@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-粽叶裹着米香，也裹着千年的想念。
+我们太多人没有实现梦想，因为我们活在恐惧中。
 
 ### 📝 Blog
 
