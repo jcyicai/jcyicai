@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-一个微笑，可以点燃另一颗心。
+粽叶裹着米香，也裹着千年的想念。
 
 ### 📝 Blog
 
