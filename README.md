@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-蝉声从树梢落下，砸出一地热浪。
+大海的宽广，在于接纳无数江河的平凡。
 
 ### 📝 Blog
 
