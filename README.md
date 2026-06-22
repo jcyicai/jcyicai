@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-大海的宽广，在于接纳无数江河的平凡。
+你不必天生闪耀，但可以持续发光。
 
 ### 📝 Blog
 
