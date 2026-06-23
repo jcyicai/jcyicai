@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你不必天生闪耀，但可以持续发光。
+寂静在树林里生长。
 
 ### 📝 Blog
 
