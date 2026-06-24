@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-寂静在树林里生长。
+露珠在草叶上等待黎明。
 
 ### 📝 Blog
 
