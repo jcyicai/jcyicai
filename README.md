@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-露珠在草叶上等待黎明。
+思念是没有地址的信。
 
 ### 📝 Blog
 
