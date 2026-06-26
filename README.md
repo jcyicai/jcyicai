@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-思念是没有地址的信。
+伟大的人在准备好前就行动。
 
 ### 📝 Blog
 
