@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-伟大的人在准备好前就行动。
+屏幕的光照亮了专注的脸。
 
 ### 📝 Blog
 
