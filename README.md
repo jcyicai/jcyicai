@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-屏幕的光照亮了专注的脸。
+收音机发出沙哑的回忆。
 
 ### 📝 Blog
 
