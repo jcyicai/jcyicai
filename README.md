@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-收音机发出沙哑的回忆。
+邮票是远方的门票。
 
 ### 📝 Blog
 
