@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-邮票是远方的门票。
+不念过往，不畏将来，专注当下。
 
 ### 📝 Blog
 
