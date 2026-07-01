@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-不念过往，不畏将来，专注当下。
+每一滴雨，都从云层里落下来。
 
 ### 📝 Blog
 
