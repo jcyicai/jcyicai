@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-每一滴雨，都从云层里落下来。
+灯泡像黑夜里结出的果实。
 
 ### 📝 Blog
 
