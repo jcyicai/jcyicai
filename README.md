@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-灯泡像黑夜里结出的果实。
+沉默是轻蔑最完美的表达。
 
 ### 📝 Blog
 
