@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-沉默是轻蔑最完美的表达。
+无论雨下多久，终见彩虹。
 
 ### 📝 Blog
 
