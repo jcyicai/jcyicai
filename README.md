@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-无论雨下多久，终见彩虹。
+生活是一个问题，我们如何生活是我们的答案。
 
 ### 📝 Blog
 
