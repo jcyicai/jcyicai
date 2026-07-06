@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-生活是一个问题，我们如何生活是我们的答案。
+别自断后路，广阔人脉网提供前进资源。
 
 ### 📝 Blog
 
