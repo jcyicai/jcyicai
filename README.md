@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-别自断后路，广阔人脉网提供前进资源。
+优势不在于跑得快，而在于起身早。
 
 ### 📝 Blog
 
