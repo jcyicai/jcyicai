@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-优势不在于跑得快，而在于起身早。
+保持好奇，世界永远新鲜。
 
 ### 📝 Blog
 
