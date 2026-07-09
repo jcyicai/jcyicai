@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-保持好奇，世界永远新鲜。
+你正在成为你该成为的人。
 
 ### 📝 Blog
 
