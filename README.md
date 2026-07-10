@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你正在成为你该成为的人。
+一人即某人的全世界。
 
 ### 📝 Blog
 
