@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-最高的树，也曾是一粒敢于发芽的种子。
+耐心不是干等，而是在等待里变强。
 
 ### 📝 Blog
 
