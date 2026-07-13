@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-耐心不是干等，而是在等待里变强。
+过有意义的生活，就是伟大的成就。
 
 ### 📝 Blog
 
