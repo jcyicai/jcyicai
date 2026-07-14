@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-过有意义的生活，就是伟大的成就。
+不溢不缺，恰如其分。
 
 ### 📝 Blog
 
