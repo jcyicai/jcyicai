@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-不溢不缺，恰如其分。
+倾听，是沉默的拥抱。
 
 ### 📝 Blog
 
