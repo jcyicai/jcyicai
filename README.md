@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-倾听，是沉默的拥抱。
+信任，是彼此愿意给出的温柔。
 
 ### 📝 Blog
 
