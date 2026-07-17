@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-信任，是彼此愿意给出的温柔。
+习惯成自然。
 
 ### 📝 Blog
 
