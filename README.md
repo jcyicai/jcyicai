@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-习惯成自然。
+感恩此刻，未来还充满可能。
 
 ### 📝 Blog
 
