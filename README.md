@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-感恩此刻，未来还充满可能。
+真正的强大，是跌倒后再站起来。
 
 ### 📝 Blog
 
