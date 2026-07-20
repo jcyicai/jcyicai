@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-真正的强大，是跌倒后再站起来。
+平静，像湖水最深处的安静。
 
 ### 📝 Blog
 
