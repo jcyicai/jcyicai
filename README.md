@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-平静，像湖水最深处的安静。
+矛盾时，心里像有两个声音在说话。
 
 ### 📝 Blog
 
