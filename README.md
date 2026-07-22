@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-矛盾时，心里像有两个声音在说话。
+热浪滚滚，但西瓜甜得正好。
 
 ### 📝 Blog
 
