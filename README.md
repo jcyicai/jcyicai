@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-热浪滚滚，但西瓜甜得正好。
+同行的人让路变短了。
 
 ### 📝 Blog
 
