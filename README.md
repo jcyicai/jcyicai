@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-同行的人让路变短了。
+伤痛铸坚强，眼泪淬勇敢，心碎炼智慧。
 
 ### 📝 Blog
 
