@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-伤痛铸坚强，眼泪淬勇敢，心碎炼智慧。
+你的存在本身，就是某些人的礼物。
 
 ### 📝 Blog
 
