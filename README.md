@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你的存在本身，就是某些人的礼物。
+安慰的话，能轻轻扶住受伤的心。
 
 ### 📝 Blog
 
