@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-安慰的话，能轻轻扶住受伤的心。
+习惯像一条路，引着我们往前走。
 
 ### 📝 Blog
 
