@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-习惯像一条路，引着我们往前走。
+等待把时间熬成了糖。
 
 ### 📝 Blog
 
