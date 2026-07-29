@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-等待把时间熬成了糖。
+偶遇是命运送的糖果。
 
 ### 📝 Blog
 
