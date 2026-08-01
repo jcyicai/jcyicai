@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你穿越风暴的无声行进，在大地写下和平。
+为人之本，在于对命运的掌控。
 
 ### 📝 Blog
 
