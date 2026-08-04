@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-少壮不努力，老大徒伤悲。
+教养胜过天性。
 
 ### 📝 Blog
 
