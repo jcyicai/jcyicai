@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-一燕不成夏（一花独放不是春）。
+勇气非无畏，而是守护所爱的意志。
 
 ### 📝 Blog
 
