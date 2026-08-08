@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-勤劳之人不受穷。
+再短的告别，也会留下长长的影子。
 
 ### 📝 Blog
 
