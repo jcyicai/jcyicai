@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-再短的告别，也会留下长长的影子。
+爱情不用眼睛看，而用心灵看。
 
 ### 📝 Blog
 
