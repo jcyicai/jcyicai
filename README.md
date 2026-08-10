@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-爱情不用眼睛看，而用心灵看。
+晨光穿过半掩的窗帘，慢慢进来。
 
 ### 📝 Blog
 
