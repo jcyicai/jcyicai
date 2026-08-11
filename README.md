@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-晨光穿过半掩的窗帘，慢慢进来。
+善意花费很少，却能改变整个房间。
 
 ### 📝 Blog
 
