@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-安静夜里的热茶，能软化艰难的一天。
+让今天就够了，明天可以再等等。
 
 ### 📝 Blog
 
