@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-让今天就够了，明天可以再等等。
+美德常青。
 
 ### 📝 Blog
 
