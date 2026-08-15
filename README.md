@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-美德常青。
+云压得很低，城市也呼吸得更慢。
 
 ### 📝 Blog
 
