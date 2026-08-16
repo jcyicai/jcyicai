@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-云压得很低，城市也呼吸得更慢。
+一顿共享的饭，把平常时光变成回忆。
 
 ### 📝 Blog
 
