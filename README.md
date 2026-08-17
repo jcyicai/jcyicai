@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-一顿共享的饭，把平常时光变成回忆。
+距离考验爱情，也教会人耐心。
 
 ### 📝 Blog
 
