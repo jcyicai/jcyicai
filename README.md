@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-距离考验爱情，也教会人耐心。
+隔着星河，两颗心依然相逢。
 
 ### 📝 Blog
 
