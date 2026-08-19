@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-隔着星河，两颗心依然相逢。
+相逢之后，离别来得比我们担心的更轻柔。
 
 ### 📝 Blog
 
