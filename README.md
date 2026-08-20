@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-相逢之后，离别来得比我们担心的更轻柔。
+浓绿仍在畅饮悠长的夏日光。
 
 ### 📝 Blog
 
