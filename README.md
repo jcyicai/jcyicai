@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-万物皆有裂痕，那是光照进来的地方。
+暑气仍盛，傍晚却稍稍温和了些。
 
 ### 📝 Blog
 
