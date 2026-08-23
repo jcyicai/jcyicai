@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-暑气仍盛，傍晚却稍稍温和了些。
+新习惯最适合在安静的早期生长。
 
 ### 📝 Blog
 
