@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-仔细听：风也能带来轻柔的歌。
+我们把自己的碎片，留在爱过的地方。
 
 ### 📝 Blog
 
