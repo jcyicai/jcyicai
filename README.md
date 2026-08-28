@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-晚间散步，比漫长忧虑更能清空思绪。
+没有人是一座孤岛。
 
 ### 📝 Blog
 
