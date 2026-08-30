@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-鹊桥相会，一年一度，却是一生一世。
+轻装前行，只带走仍能温暖你的东西。
 
 ### 📝 Blog
 
