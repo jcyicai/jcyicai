@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-轻装前行，只带走仍能温暖你的东西。
+八月为我们多留住了一会儿阳光。
 
 ### 📝 Blog
 
