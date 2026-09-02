@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-九月展开，天空又清又阔。
+早晨的太阳，停在安静的街上。
 
 ### 📝 Blog
 
