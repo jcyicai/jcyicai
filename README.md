@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-早晨的太阳，停在安静的街上。
+树林可爱，又暗又深。
 
 ### 📝 Blog
 
