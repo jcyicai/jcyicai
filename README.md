@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-慢慢喝一杯茶，开启平和的早晨。
+在AI时代，好奇心仍是我们的超能力。
 
 ### 📝 Blog
 
