@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-白露在破晓时，凉了满地的绿。
+我孤独地漫游，像一朵云。
 
 ### 📝 Blog
 
