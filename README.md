@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-我孤独地漫游，像一朵云。
+心保持好奇，书就会一直打开。
 
 ### 📝 Blog
 
