@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-好老师种下的，是不断生长的问题。
+好奇能让平常的工作，也焕然一新。
 
 ### 📝 Blog
 
