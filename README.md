@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-好奇能让平常的工作，也焕然一新。
+一同笑过，长路也显得轻松。
 
 ### 📝 Blog
 
