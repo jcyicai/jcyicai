@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-夜静下来，旧歌就会回来。
+做你热爱的事，时光也会变轻。
 
 ### 📝 Blog
 
