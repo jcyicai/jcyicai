@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-轻轻走，因为你踏着我的梦。
+桌上的热面包，闻起来像家。
 
 ### 📝 Blog
 
