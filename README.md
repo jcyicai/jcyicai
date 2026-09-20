@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-小小的感恩，带来大大的快乐。  
+雨打在窗上，房间也显得安稳。
 
 ### 📝 Blog
 
