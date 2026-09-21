@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-雨打在窗上，房间也显得安稳。
+简洁是智慧的灵魂。
 
 ### 📝 Blog
 
