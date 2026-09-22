@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-简洁是智慧的灵魂。
+平衡，住在忙碌与休息之间。
 
 ### 📝 Blog
 
