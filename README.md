@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-平衡，住在忙碌与休息之间。
+昼夜等长，平静而清澈。
 
 ### 📝 Blog
 
