@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-昼夜等长，平静而清澈。
+给想念的人，写一封短短的信。
 
 ### 📝 Blog
 
