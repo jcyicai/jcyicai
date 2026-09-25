@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-给想念的人，写一封短短的信。
+圆月把远方的心，带回家里。
 
 ### 📝 Blog
 
