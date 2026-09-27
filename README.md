@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-种子在寂静的泥土里生长。  
+每天做的小习惯，会悄悄改变一年。
 
 ### 📝 Blog
 
