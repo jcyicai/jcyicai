@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-这世界与我们纠缠得太深。
+把一件真正要做的事，留在手边。
 
 ### 📝 Blog
 
