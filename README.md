@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-把一件真正要做的事，留在手边。
+我们用感谢，而不是匆忙，结束这个月。
 
 ### 📝 Blog
 
