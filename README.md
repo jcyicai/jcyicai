@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-今晚，月亮倚在我的窗台上。
+每个生灵，都带着自己的微光。
 
 ### 📝 Blog
 
