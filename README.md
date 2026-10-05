@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-每个生灵，都带着自己的微光。
+不慌不忙的清晨，让一整天都变得悠长。
 
 ### 📝 Blog
 
