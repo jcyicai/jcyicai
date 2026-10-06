@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-不慌不忙的清晨，让一整天都变得悠长。
+叶子放手了，树却站得更挺拔。
 
 ### 📝 Blog
 
