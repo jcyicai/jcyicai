@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-叶子放手了，树却站得更挺拔。
+无论去哪里，勇气都与你同行。
 
 ### 📝 Blog
 
