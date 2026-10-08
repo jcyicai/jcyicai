@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-无论去哪里，勇气都与你同行。
+寒露打湿了草，秋天深沉了嗓音。
 
 ### 📝 Blog
 
