@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-寒露打湿了草，秋天深沉了嗓音。
+好书是一扇随处可开的门。
 
 ### 📝 Blog
 
