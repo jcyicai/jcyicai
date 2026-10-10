@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-好书是一扇随处可开的门。
+江河不与石头争辩，只管向前流淌。
 
 ### 📝 Blog
 
