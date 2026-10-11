@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-江河不与石头争辩，只管向前流淌。
+最好的回忆，总在满满的餐桌旁。
 
 ### 📝 Blog
 
