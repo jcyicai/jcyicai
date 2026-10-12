@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-最好的回忆，总在满满的餐桌旁。
+每天一小步，走过就是长路。
 
 ### 📝 Blog
 
