@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-每天一小步，走过就是长路。
+你的善意，也许正是别人今天全部的阳光。
 
 ### 📝 Blog
 
