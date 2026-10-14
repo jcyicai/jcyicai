@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你的善意，也许正是别人今天全部的阳光。
+雾漫过山丘，像一首舒缓的歌。
 
 ### 📝 Blog
 
