@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-雾漫过山丘，像一首舒缓的歌。
+选择更难的正确，而非更容易的错误。
 
 ### 📝 Blog
 
