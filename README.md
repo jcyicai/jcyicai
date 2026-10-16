@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-选择更难的正确，而非更容易的错误。
+一起分享的面包，格外香甜。
 
 ### 📝 Blog
 
