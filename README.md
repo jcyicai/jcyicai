@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-一起分享的面包，格外香甜。
+星星是夜空在说：请继续前行。
 
 ### 📝 Blog
 
