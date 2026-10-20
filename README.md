@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-蜡烛点亮另一支，自己并不损失什么。
+风在每片叶子落下前，都读过它。
 
 ### 📝 Blog
 
