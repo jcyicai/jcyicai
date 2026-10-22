@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-今天，对身边的小事说声谢谢。
+雨打屋檐，是天空的摇篮曲。
 
 ### 📝 Blog
 
