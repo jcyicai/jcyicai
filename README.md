@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-雨打屋檐，是天空的摇篮曲。
+霜要来了，柿子却像灯笼一样挂着。
 
 ### 📝 Blog
 
