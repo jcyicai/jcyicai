@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-霜要来了，柿子却像灯笼一样挂着。
+穿越困境，得以成长。
 
 ### 📝 Blog
 
