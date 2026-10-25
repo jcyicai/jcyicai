@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-穿越困境，得以成长。
+忍耐是苦涩的，但它的果实是甜的。
 
 ### 📝 Blog
 
