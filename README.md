@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-老街藏着最暖的故事。
+你可以同时坚强，也可以疲惫。
 
 ### 📝 Blog
 
