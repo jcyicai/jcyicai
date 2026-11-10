@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你可以同时坚强，也可以疲惫。
+霜耐心地给沉睡的大地刷上银色。
 
 ### 📝 Blog
 
