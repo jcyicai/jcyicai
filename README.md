@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-霜耐心地给沉睡的大地刷上银色。
+今天最值得买下的，是给自己的一点时间。
 
 ### 📝 Blog
 
