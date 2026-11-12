@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-今天最值得买下的，是给自己的一点时间。
+冷手里捧一杯热饮，清晨就静止了。
 
 ### 📝 Blog
 
