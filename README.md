@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-冷手里捧一杯热饮，清晨就静止了。
+树沉睡着，梦见重回绿色。
 
 ### 📝 Blog
 
