@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-悲伤生喜悦，如枯花绽新蕾。
+夜虽长，小欢喜也一样的多。
 
 ### 📝 Blog
 
