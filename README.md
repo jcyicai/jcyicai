@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-一次短途散步，能解开一长串烦恼。
+北风把落叶和坚强的枝干分开。
 
 ### 📝 Blog
 
