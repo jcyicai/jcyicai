@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-北风把落叶和坚强的枝干分开。
+口袋要暖，心要更暖。
 
 ### 📝 Blog
 
