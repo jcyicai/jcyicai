@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-口袋要暖，心要更暖。
+有些门，只肯为再次敲响的人打开。
 
 ### 📝 Blog
 
