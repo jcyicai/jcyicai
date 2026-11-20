@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-有些门，只肯为再次敲响的人打开。
+再长的夜，也会以日出收尾。
 
 ### 📝 Blog
 
