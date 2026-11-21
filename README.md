@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-再长的夜，也会以日出收尾。
+感恩让我们拥有的变成足够。
 
 ### 📝 Blog
 
