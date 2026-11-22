@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-感恩让我们拥有的变成足够。
+小雪轻声说，一年正在合上书页。
 
 ### 📝 Blog
 
