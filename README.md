@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-一锅热汤，暖的不只是身体。
+你的声音，也值得你给出的那份善意。
 
 ### 📝 Blog
 
