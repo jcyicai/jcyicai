@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-你的声音，也值得你给出的那份善意。
+沉溺于梦想而忘记生活，是不行的。
 
 ### 📝 Blog
 
