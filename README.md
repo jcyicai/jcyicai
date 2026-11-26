@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-沉溺于梦想而忘记生活，是不行的。
+感恩的心，从不过季。
 
 ### 📝 Blog
 
