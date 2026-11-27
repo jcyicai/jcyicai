@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-感恩的心，从不过季。
+冬日的阳光，给每根秃枝都镀上金色。
 
 ### 📝 Blog
 
