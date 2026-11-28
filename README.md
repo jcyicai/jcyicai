@@ -10,7 +10,7 @@ Long-term commitments: waking up early, reading, studying, running, cooking.
 
 ### 🕡 Daily Sentence
 
-冬日的阳光，给每根秃枝都镀上金色。
+在放下之中亦有美感。
 
 ### 📝 Blog
 
